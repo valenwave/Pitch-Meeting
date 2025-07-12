@@ -1,5 +1,3 @@
----
-
 **PRODUCER GUY:** So you have a new idea for a game?
 
 **SCREENWRITER GUY:** Yes, sir, I do! It’s called **Dredge**.
