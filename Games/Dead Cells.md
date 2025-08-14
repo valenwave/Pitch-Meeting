@@ -1,53 +1,75 @@
-**PRODUCER GUY:** So, what's the next big indie game idea you've got for me?
+**SCREENWRITER GUY:** So, you have a new video game idea for me?
 
-**SCREENWRITER GUY:** Okay, so it's a roguelike.
+**PRODUCER GUY:** Yes sir, I do. And I think people are going to find it very relaxing and accessible.
 
-**PRODUCER GUY:** A roguelike? Like, you die and you lose everything? That sounds... frustrating.
+**SCREENWRITER GUY:** Oh, it’s the exact opposite of that. It’s a game where the main gameplay loop is centered around brutal, soul-crushing failure.
 
-**SCREENWRITER GUY:** Exactly! But also, it's a Metroidvania!
+**PRODUCER GUY:** Oh, fantastic! Failure is my favorite genre of entertainment.
 
-**PRODUCER GUY:** Woah woah woah, hold on a second. So you die, lose all your progress, but also you need permanent upgrades to access new areas, which you also lose when you die? How does that even work?
+**SCREENWRITER GUY:** Right? So the game is called *Dead Cells*. You play as a prisoner on a creepy, plague-ridden island.
 
-**SCREENWRITER GUY:** See, you don't lose *everything*. You keep these things called "runes" which let you access new areas permanently! So you're always making progress, even when you're dying.
+**PRODUCER GUY:** Sounds grim. What did our hero do to get locked up?
 
-**PRODUCER GUY:** Oh, so it's a roguelite then. Got it. So what's the story? Who are you?
+**SCREENWRITER GUY:** That’s a bit of a mystery! He’s actually just a pile of green goo that slithers out of a sewer pipe and possesses a headless corpse.
 
-**SCREENWRITER GUY:** You're a headless corpse. Or, more accurately, an amorphous blob of green goo that possesses headless corpses.
+**PRODUCER GUY:** He’s a… goo-pile in a meat-suit?
 
-**PRODUCER GUY:** ...Right. So you're just this little green blob that hops into dead guys. And what's your goal?
+**SCREENWRITER GUY:** That’s him! So this headless goo-man has to fight his way through ever-changing dungeons to slay the evil King who is responsible for the plague that turned everyone into monsters. It’s called “The Malaise.”
 
-**SCREENWRITER GUY:** You're trying to escape this infected island and kill the King! And then, surprise, you find out you *are* the King!
+**PRODUCER GUY:** The Malaise? Sounds like the feeling of having to go to the DMV.
 
-**PRODUCER GUY:** Wait, you're the King? So you're trying to kill yourself? That's a bit... dark. And confusing. So, when you die, you just restart?
+**SCREENWRITER GUY:** It’s very similar. So you grab a rusty sword and a rickety shield and charge into battle! And then you are immediately killed by a teleporting demon with an axe.
 
-**SCREENWRITER GUY:** Yep! Back to the Prisoners' Quarters! But you can unlock new weapons and mutations with "cells" you collect from enemies.
+**PRODUCER GUY:** Oh. Well, that was a short game.
 
-**PRODUCER GUY:** Cells, huh? So, like, cell-shaded graphics?
+**SCREENWRITER GUY:** Not at all! Because when you die, your little goo-head pops off the corpse, zips all the way back to the start of the prison, slops into another headless body, and you try again from scratch.
 
-**SCREENWRITER GUY:** No, just regular cells. From the dead enemies.
+**PRODUCER GUY:** So the main feature of the game is dying and losing all your progress?
 
-**PRODUCER GUY:** Gotcha. And the combat? Is it like... hack and slash?
+**SCREENWRITER GUY:** Constantly! Dying is tight!
 
-**SCREENWRITER GUY:** Fast-paced, fluid combat! You've got melee weapons, ranged weapons, skills, shields for parrying...
+**PRODUCER GUY:** Is it, though? Feels like it would be super hard to make any real progress.
 
-**PRODUCER GUY:** Parrying? So I have to press a button at the exact right moment or I get hit? Sounds like a lot of pressure.
+**SCREENWRITER GUY:** Actually, it’s gonna be super easy, barely an inconvenience.
 
-**SCREENWRITER GUY:** Adds to the challenge! And if you don't kill enemies fast enough, you lose your speed boost!
+**PRODUCER GUY:** Oh really?
 
-**PRODUCER GUY:** So I have to be good *and* fast? This sounds like it's going to be really hard. People don't like hard games anymore. They like to feel like they're good at games.
+**SCREENWRITER GUY:** Yeah, see, when you kill monsters, they drop things called Cells. And after each level, you meet this shady guy in a cloak called The Collector who will happily take your Cells in exchange for permanent upgrades or unlocking new weapons you can find later.
 
-**SCREENWRITER GUY:** But it's addictive! You just want to try "one more run." The procedural generation keeps it fresh!
+**PRODUCER GUY:** So you die and lose all your weapons and money, but this strange man lets you keep a receipt for a slightly better sword that you might find on your next attempt?
 
-**PRODUCER GUY:** Procedural generation... so it's different every time? That's cool. But the story still sounds like it's all over the place. You're a blob, then you're a king, then you're trying to kill yourself, and then you just... loop?
+**SCREENWRITER GUY:** Exactly! So each failure makes you just a tiny bit less pathetic for the next run. It’s a loop! People love loops.
 
-**SCREENWRITER GUY:** It's about the journey, man! The constant improvement, the discovery of new weapons and synergies! Plus, we've got awesome pixel art!
+**PRODUCER GUY:** I do enjoy a good loop. So what kind of enemies are we fighting?
 
-**PRODUCER GUY:** Pixel art? In this day and age? Are you sure people will go for that?
+**SCREENWRITER GUY:** All sorts! Zombies, giant bats, creepy crawlers, and guys who throw explosive things at you from off-screen where you can’t see them.
 
-**SCREENWRITER GUY:** It's a classic style! It's charming! And the animations are super smooth!
+**PRODUCER GUY:** That seems unfair.
 
-**PRODUCER GUY:** Alright, alright. A roguelite Metroidvania where you're a headless blob possessing bodies, trying to kill yourself, with challenging combat and pixel art. And you die a lot. I don't know, man. Sounds like a niche market. But hey, sometimes those niche markets really take off, right? We'll give it a shot.
+**SCREENWRITER GUY:** Whoops!
 
----
+**PRODUCER GUY:** Whoopsie. So eventually you get good enough to reach the King, I assume?
 
-**NEWS HEADLINE:** "DEAD CELLS SELLS OVER 10 MILLION COPIES, CONTINUES TO RECEIVE FREE CONTENT YEARS AFTER LAUNCH"
+**SCREENWRITER GUY:** Eventually! After fighting your way through his ridiculously powerful bodyguard, the Hand of the King, you burst into the throne room for the final confrontation! And that’s when we hit the player with a big twist.
+
+**PRODUCER GUY:** What is it?
+
+**SCREENWRITER GUY:** The headless goo-pile you’ve been playing as this whole time… is actually the King!
+
+**PRODUCER GUY:** What?
+
+**SCREENWRITER GUY:** Yeah, he was a real jerk who messed with alchemy to try and live forever, but it backfired, created the plague, and got himself beheaded. Now he’s stuck as an immortal pile of sludge with amnesia, trying to kill his own original body.
+
+**PRODUCER GUY:** So the entire plot is a hero trying to stop a villain, but the hero IS the villain and he just forgot?
+
+**SCREENWRITER GUY:** It's super deep. So then you kill your own body, but it turns out there’s a time loop, so you just get sent back to the beginning to do it all over again, only this time it’s even harder.
+
+**PRODUCER GUY:** Wow. So the reward for finally winning is that you have to play an even more punishing version of the game?
+
+**SCREENWRITER GUY:** Yes! We can sell that as a feature!
+
+**PRODUCER GUY:** A game where you play as an amnesiac goo-zombie who is also the bad guy, stuck in an endless, punishing cycle of death and resurrection, all while armed with a frying pan. It’s brilliant! The frustration will be so palpable, people won’t be able to put it down.
+
+***
+
+**Kotaku:** "Dead Cells Named 'Game of the Year,' Global Controller Sales Skyrocket by 500%"

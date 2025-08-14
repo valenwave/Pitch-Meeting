@@ -1,41 +1,87 @@
-**PRODUCER GUY:** So, what's the pitch?
+**SCREENWRITER GUY:** So, you have a video game idea for me?
 
-**SCREENWRITER GUY:** Okay, so it's a game. And you play as Dave.
+**PRODUCER GUY:** Yes sir, I do. Let's hear it.
 
-**PRODUCER GUY:** Dave. Okay. And what does Dave do?
+**SCREENWRITER GUY:** Okay, so picture this. We've got our hero, Dave. He's a diver. A pretty chill, slightly out-of-shape guy enjoying his vacation.
 
-**SCREENWRITER GUY:** He's a diver. He goes into this mysterious place called the Blue Hole.
+**PRODUCER GUY:** Ah, a relatable protagonist. I like it.
 
-**PRODUCER GUY:** Right, a diving game. We've seen those. Is it, like, a survival thing? Scary monsters?
+**SCREENWRITER GUY:** So his good friend Cobra calls him up with a business opportunity he can't refuse.
 
-**SCREENWRITER GUY:** Well, there are some scary fish, sure, like sharks and giant squid. But the main thing Dave does, after he catches the fish...
+**PRODUCER GUY:** Is this friend going to exploit him?
 
-**PRODUCER GUY:** Yes? What's the twist?
+**SCREENWRITER GUY:** Massively. So Cobra has found this mysterious body of water called the Blue Hole. The neat thing is, the geography and all the fish in it change every single time you dive!
 
-**SCREENWRITER GUY:** He brings them back to shore, and then he runs a sushi restaurant.
+**PRODUCER GUY:** Oh, a magical, ever-changing ocean hole. That sounds convenient.
 
-**PRODUCER GUY:** ...He runs a sushi restaurant? So, by day he's a daring deep-sea explorer, risking life and limb, and by night he's... serving nigiri?
+**SCREENWRITER GUY:** It is! Super convenient! So Cobra's idea is this: Dave will spend his days diving into this dangerous, unpredictable abyss to catch fish with a harpoon...
 
-**SCREENWRITER GUY:** Exactly! You catch the fish, prepare the menu, serve the customers, refill their tea, clear their plates... It's very zen.
+**PRODUCER GUY:** Okay...
 
-**PRODUCER GUY:** Zen. Right. So, he's just diving and making sushi. That's it? No plot? No overarching narrative?
+**SCREENWRITER GUY:** And then at night, he'll run a high-end sushi restaurant, serving the fish he just caught.
 
-**SCREENWRITER GUY:** Oh, no, there's a huge plot! It turns out there's a hidden civilization of Sea People down in the Blue Hole! And you get involved in their struggles, and there are ancient mysteries, and a secret society trying to exploit the Blue Hole's resources, and a crazy scientist, and you upgrade your gear, and there are boss fights, and minigames where you take photos of fish, and you can farm ingredients, and hire staff for the restaurant, and a rhythm game where you play an instrument...
+**PRODUCER GUY:** Hold on. The diver is also running the restaurant? Does he have any culinary or business management experience?
 
-**PRODUCER GUY:** Whoa, whoa, whoa. So it's a diving game, a restaurant management sim, an RPG, a farming sim, a rhythm game, *and* an adventure game with a deep lore about Sea People? Are you just throwing every single genre you can think of into a blender?
+**SCREENWRITER GUY:** Absolutely none.
 
-**SCREENWRITER GUY:** Pretty much! And every time you think you've seen everything, it throws something new at you. Like, one minute you're trying to harpoon a tuna, the next you're helping a lost baby manatee find its mom. Or delivering a rare artifact for a scientist. Or having a cooking competition.
+**PRODUCER GUY:** Oh, good.
 
-**PRODUCER GUY:** And this... this Dave, he's like, a super buff action hero, right? Like, Dwayne "The Rock" Johnson, but underwater?
+**SCREENWRITER GUY:** But don't worry, he's got help! There's Bancho, an expert sushi chef who speaks only in intense stares and prepares food with the focus of a samurai. He'll do the actual cooking. Dave just has to set the menu, serve the green tea, pour the beer, grind the wasabi, and clean the tables.
 
-**SCREENWRITER GUY:** He's a little round, actually. Kind of a chill, unassuming guy. He just wants to catch fish and make good sushi.
+**PRODUCER GUY:** So after a full day of fighting off sharks in the deep ocean, his reward is a stressful night in the service industry? This sounds less like a fun game and more like my twenties.
 
-**PRODUCER GUY:** So you're telling me this game, with a portly diver who moonlights as a sushi chef, where you do everything from deep-sea exploration to serving drinks, and it has a story about ancient underwater civilizations, is going to be a hit? People are going to love this kitchen sink of gameplay?
+**SCREENWRITER GUY:** Exactly! So the core loop is: dive, catch fish, sell fish, make money. And with that money, Dave can upgrade his gear to dive even deeper and carry more fish.
 
-**SCREENWRITER GUY:** I think so! It's charming, it's funny, it's constantly surprising, and it just feels good to play. It's got heart!
+**PRODUCER GUY:** To make more money to upgrade his gear to dive deeper?
 
-**PRODUCER GUY:** Alright, fine. You know what? This is so absurd, it just might work. People like weird stuff. Put a little pixel art on it. Make the characters endearing. Maybe, just maybe, this will be one of those unexpected successes.
+**SCREENWRITER GUY:** You're getting it!
+
+**PRODUCER GUY:** It sounds a little repetitive.
+
+**SCREENWRITER GUY:** Oh, it won't be. Because while he's down there, he'll also have to find parts to give to Duff, an anime-obsessed weaponsmith who will make him guns to shoot the fish with.
+
+**PRODUCER GUY:** He's gonna shoot the sushi? Won't that, you know, ruin the meat?
+
+**SCREENWRITER GUY:** Whoops!
+
+**PRODUCER GUY:** Whoopsie! So he's a diver, a restaurateur, and now a weapons collector. What else?
+
+**SCREENWRITER GUY:** I'm so glad you asked. He'll also meet a race of ancient Sea People.
+
+**PRODUCER GUY:** Of course he will.
+
+**SCREENWRITER GUY:** And they have a whole problem with their civilization being threatened by earthquakes and zombie mermaids. So Dave has to help them.
+
+**PRODUCER GUY:** How does a diver who is also running a restaurant have time to solve the problems of an ancient underwater civilization?
+
+**SCREENWRITER GUY:** It's going to be tough for him to juggle all that.
+
+**PRODUCER GUY:** Actually, it's gonna be super easy, barely an inconvenience?
+
+**SCREENWRITER GUY:** You know it! He'll also take on quests from an archaeologist to find artifacts, run a farm to grow rice and vegetables, manage a fish farm to breed fish so he doesn't have to catch them all the time, take pictures of specific marine life for a journalist, and collect trading cards based on the fish he finds.
+
+**PRODUCER GUY:** Wow wow wow... wow. So let me get this straight. The game is about a diver who is also a sushi restaurant manager, a waiter, a weapons expert, an archaeologist's assistant, a farmer, a fish breeder, a nature photographer, and a trading card collector, all while being the chosen savior for a hidden race of mer-people?
+
+**SCREENWRITER GUY:** And he has to manage his restaurant's social media profile on an app called "Cooksta." Getting likes is very important.
+
+**PRODUCER GUY:** My head hurts. What happens if he fails on a dive? Like, if a shark eats him or he runs out of oxygen?
+
+**SCREENWRITER GUY:** Oh, he doesn't die. He just gets rescued and can only bring one item from his entire haul back with him.
+
+**PRODUCER GUY:** That seems like a very gentle punishment for being mauled by a Great White.
+
+**SCREENWRITER GUY:** We want the player to feel relaxed!
+
+**PRODUCER GUY:** While they're managing five different careers and preventing an underwater apocalypse?
+
+**SCREENWRITER GUY:** Precisely! And sometimes there are special VIP customers and events, like a Jellyfish party or a Shark party, and Dave has to catch specific things for them.
+
+**PRODUCER GUY:** This sounds like the most feature-crammed, genre-bending game in existence. It's a dozen games all wearing one big trench coat.
+
+**SCREENWRITER GUY:** And the trench coat is made of delicious sushi!
+
+**PRODUCER GUY:** You know what? It's so completely absurd and all over the place that I feel like people are going to weirdly love it. It makes no sense. I'm in.
 
 ***
 
-**NEWS HEADLINE:** DAVE THE DIVER SURPASSES 5 MILLION COPIES SOLD WORLDWIDE
+**IGN:** *Dave the Diver Sells Millions, Becomes Sleeper Hit of the Year, Proving Gamers Just Want to Do Everything, All at Once*
