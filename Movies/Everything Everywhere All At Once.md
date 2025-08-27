@@ -1,39 +1,53 @@
-## Everything Everywhere All At Once
+**PRODUCER GUY:** So, you have an Everything Everywhere All at Once movie for me?
 
-**INT. MOVIE PITCH MEETING - DAY**
+**SCREENWRITER GUY:** Yes, sir, I do.
 
-**PRODUCER GUY:** Alright, so what do you got for me? Give me something fresh!
+**PRODUCER GUY:** Oh boy, so it's a multiverse movie, huh? I love those. It's like one of the only things we do anymore. It's a gold mine. So what are the heroes?
 
-**SCREENWRITER GUY:** Okay, so it’s about a Chinese-American laundromat owner named Evelyn. Her life is kind of falling apart, she’s facing an IRS audit, her marriage is struggling, and she’s got a strained relationship with her daughter.
+**SCREENWRITER GUY:** Well, the main hero is this woman named Evelyn Wang. She's a Chinese-American immigrant who runs a laundromat.
 
-**PRODUCER GUY:** Sounds… uplifting. Where’s the blockbuster appeal here? Is it a dramedy? Because I’m picturing a lot of laundry baskets.
+**PRODUCER GUY:** Oh, so she's a laundromat owner, and she's a hero who's going to save the multiverse, right?
 
-**SCREENWRITER GUY:** No, no! See, during the IRS audit, she suddenly discovers she can access different versions of herself from the multiverse!
+**SCREENWRITER GUY:** That's right. And her husband, Waymond, also helps out. He's a very kind and gentle man.
 
-**PRODUCER GUY:** Whoa, whoa, whoa. Multiverse? Like, Marvel multiverse? Is she a superhero? Does she put on a spandex suit? Because I got a guy for spandex.
+**PRODUCER GUY:** Oh, okay. And what about the villain? Is it some sort of powerful sorcerer, or maybe a rogue A.I.?
 
-**SCREENWRITER GUY:** Not exactly a spandex suit. She learns to "verse-jump" by doing really bizarre, statistically improbable things. Like, she has to swap her shoes from one foot to the other, or eat a stick of chapstick.
+**SCREENWRITER GUY:** No, sir. It's a version of her daughter from another universe, named Jobu Tupaki.
 
-**PRODUCER GUY:** (Raises an eyebrow) Eating chapstick gives you superpowers? Is this a public service announcement for lip balm? Because I don't think that's how that works.
+**PRODUCER GUY:** Oh, a daughter-villain, huh? Interesting dynamic. So what's her evil plan?
 
-**SCREENWRITER GUY:** It gives her access to the skills and memories of other Evelyns! So, in one universe, she’s a kung fu master. In another, she’s a famous movie star.
+**SCREENWRITER GUY:** Well, she's trying to destroy the multiverse with a bagel.
 
-**PRODUCER GUY:** So, she's an immigrant laundromat owner who suddenly knows kung fu because she ate chapstick? And she's famous in another life? This sounds like a fever dream I had after eating too much dim sum. What’s the conflict? Is she fighting the IRS with kung fu?
+**PRODUCER GUY:** A bagel?
 
-**SCREENWRITER GUY:** She's fighting an incredibly powerful, nihilistic entity named Jobu Tupaki, who is actually a version of her own daughter, Joy, from another universe! Jobu created an "Everything Bagel" that could destroy the multiverse because she's experienced everything and nothing matters to her anymore.
+**SCREENWRITER GUY:** Yeah, an Everything Bagel. It's a black-hole-like singularity that contains everything in the multiverse.
 
-**PRODUCER GUY:** Wait, so the villain is an everything bagel? Like, with cream cheese? Is this a comedy about breakfast pastries? And her daughter is the bagel? How does that work? Does she turn into a giant bagel?
+**PRODUCER GUY:** Oh, those are words! So she's trying to destroy all of reality with an everything bagel, and she's the daughter of the hero. Why is she so mad?
 
-**SCREENWRITER GUY:** No, the Everything Bagel is like a black hole, a singularity that sucks everything in. And Jobu Tupaki is super powerful because her mind was splintered after her Alpha-Evelyn pushed her too hard to verse-jump. So she experiences all universes at once and it drove her to despair.
+**SCREENWRITER GUY:** Because in another universe, her mom pushed her too hard to do multiversal stuff, and it broke her mind, so now she experiences all universes at once.
 
-**PRODUCER GUY:** So, it's about generational trauma, immigrant struggles, existential nihilism, *and* kung fu fights with fanny packs, and a talking raccoon chef, and people with hot dogs for fingers? This sounds like you just threw a bunch of darts at a whiteboard filled with random concepts.
+**PRODUCER GUY:** Ah, so the villain is an allegory for depression and generational trauma.
 
-**SCREENWRITER GUY:** But it all ties together! It's about a mother learning to accept her daughter, and finding meaning and kindness in a chaotic world, even when nothing makes sense!
+**SCREENWRITER GUY:** Yep. So Evelyn has to learn how to verse-jump, which is how you access the skills of your alternate selves.
 
-**PRODUCER GUY:** (Sighs) Alright, alright. I'll give you this, it's... ambitious. And weird. Really, *really* weird. But sometimes weird works. People like weird, right? As long as it's not *too* weird. I mean, the hot dog fingers are pushing it, but the kung fu could be marketable. Let’s make it. I think it could do... alright. Maybe it'll be a little indie hit, get some good reviews from the weird film crowd.
+**PRODUCER GUY:** How do you verse-jump? Do you touch a special crystal or do a little dance?
 
----
+**SCREENWRITER GUY:** Well, you have to perform a statistically unlikely or bizarre action, like putting googly eyes on your forehead or switching your shoes from one foot to the other.
 
-**NEWS HEADLINE:**
+**PRODUCER GUY:** Oh my god. Okay. So, she has to fight the villain with all these powers she's gaining, but what's the emotional core of the film?
 
-**"EVERYTHING EVERYWHERE ALL AT ONCE SHOCKS HOLLYWOOD, SWEEPS OSCARS INCLUDING BEST PICTURE, CROSSING $100 MILLION AT BOX OFFICE!"**
+**SCREENWRITER GUY:** Well, she's trying to save her family. And also, she's being audited by the IRS.
+
+**PRODUCER GUY:** A multiverse-threatening bagel and a tax audit? Those are some high stakes. So, the IRS agent must be, like, the most evil person in the world, right?
+
+**SCREENWRITER GUY:** No, not at all. She's a good person. And Evelyn learns to use kindness and empathy to fight the bad guys instead of violence.
+
+**PRODUCER GUY:** Fighting with kindness. That's a bold move. So how does this whole saga end? Does she defeat her daughter?
+
+**SCREENWRITER GUY:** No, she saves her. She convinces Jobu that even though nothing matters, their relationship and the simple things in their lives do.
+
+**PRODUCER GUY:** So the whole movie is about a mom accepting her daughter and fighting a nihilistic bagel with kindness. I love it! That's going to do great!
+
+*A WEEK LATER*
+
+**A24’S 'EVERYTHING EVERYWHERE ALL AT ONCE' BECOMES THE STUDIO’S HIGHEST-GROSSING FILM OF ALL TIME AND WINS SEVEN ACADEMY AWARDS, INCLUDING BEST PICTURE.**
