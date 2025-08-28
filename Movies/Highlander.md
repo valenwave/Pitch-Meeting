@@ -1,45 +1,89 @@
-**PRODUCER GUY:** So, you've got another pitch for me, huh? What's this one about?
+**PRODUCER GUY:** So, you have an epic fantasy movie for me?
 
-**SCREENWRITER GUY:** Okay, so picture this: Immortals.
+**SCREENWRITER GUY:** Yes sir, I do! It’s called *Highlander*, and it’s about a bunch of immortals who have been secretly fighting each other for centuries.
 
-**PRODUCER GUY:** Immortals. Like, they don't die?
+**PRODUCER GUY:** Oh, a secret war between ancient beings! Those are tight!
 
-**SCREENWRITER GUY:** Exactly! But there's a catch. The only way you can kill an immortal is by chopping off their head.
+**SCREENWRITER GUY:** They are! So our hero is Connor MacLeod, a Scotsman born in the Highlands of Scotland in the year 1518.
 
-**PRODUCER GUY:** Right. So, like, a bunch of guys running around with swords, trying to decapitate each other? That sounds... violent. And a little niche.
+**PRODUCER GUY:** Love it. A rugged Scottish hero. I assume we’re getting a charismatic Scottish actor for the part?
 
-**SCREENWRITER GUY:** It's epic! They've been living among us for centuries, secretly fighting. And eventually, "there can be only one!"
+**SCREENWRITER GUY:** We’re getting Christopher Lambert, a French actor whose English is, uh, let’s call it unique.
 
-**PRODUCER GUY:** "There can be only one." So, a Highlander, from Scotland, is fighting a guy named The Kurgan, who's this big, scary dude who clearly skips leg day.
+**PRODUCER GUY:** A Frenchman is playing the quintessential Scotsman. Is his accent going to be a problem?
 
-**SCREENWRITER GUY:** He's intimidating! And he drives a really cool car.
+**SCREENWRITER GUY:** Not at all, it will be an iconic part of the character! So in 1536, Connor is in a battle and gets fatally wounded by a massive, terrifying warrior known as The Kurgan.
 
-**PRODUCER GUY:** And Sean Connery is in it, right? Playing... a Spanish Egyptian? With a Scottish accent?
+**PRODUCER GUY:** So he dies. Is this a short film?
 
-**SCREENWRITER GUY:** **WELL, HE'S AN IMMORTAL, SO HE'S BEEN AROUND! AND HE'S WISE! HE TRAINS OUR HERO!**
+**SCREENWRITER GUY:** No, see, he comes back to life perfectly fine! So his clan, thinking he’s a demon, banishes him.
 
-**PRODUCER GUY:** So, they're fighting in a parking garage. And when one of them gets their head chopped off, all the cars explode for some reason? Like, a mystical energy surge?
+**PRODUCER GUY:** Seems like a measured response to a friend miraculously recovering from being shish-kebabbed.
 
-**SCREENWRITER GUY:** **IT'S CALLED THE QUICKENING! IT'S VERY IMPORTANT! THE ENERGY IS RELEASED!**
+**SCREENWRITER GUY:** It does. So Connor wanders off and eventually meets another immortal, a wise and flamboyant mentor named Juan Sánchez-Villalobos Ramírez.
 
-**PRODUCER GUY:** Okay. And the main guy, Connor MacLeod, he's like... an antiques dealer in New York now? But he flashes back to medieval Scotland?
+**PRODUCER GUY:** A classic Spanish name. I trust we’ve cast a talented Spanish actor for this role?
 
-**SCREENWRITER GUY:** **YES! IT'S ABOUT HIS JOURNEY THROUGH TIME! THE WEIGHT OF ETERNITY! THE LOSS HE'S ENDURED!**
+**SCREENWRITER GUY:** We’ve cast Sean Connery.
 
-**PRODUCER GUY:** The loss of his first wife, who just... dies of old age because *she* wasn't immortal. That's actually kind of sad. But then he meets this modern woman, a metallurgist, who investigates all the headless bodies. And she finds out his secret pretty quickly, like, by examining sword fragments.
+**PRODUCER GUY:** The Scottish actor.
 
-**SCREENWRITER GUY:** **SHE'S VERY SMART! SHE'S INTO METALLURGY!**
+**SCREENWRITER GUY:** That’s the one!
 
-**PRODUCER GUY:** And then there's a big final showdown in a studio, with all these weird industrial sparks and stuff flying around. And he finally chops off The Kurgan's head and gets "The Prize." What's The Prize, by the way?
+**PRODUCER GUY:** So let me get this straight. The Frenchman is playing the Scotsman, and the Scotsman is playing a Spaniard who is also secretly an ancient Egyptian.
 
-**SCREENWRITER GUY:** **IT'S ALL THE KNOWLEDGE! ALL THE POWER OF THE IMMORTALS! AND THEN HE CAN HAVE KIDS! HE BECOMES MORTAL!**
+**SCREENWRITER GUY:** Now you’re getting it! So Ramírez teaches Connor the rules of being an immortal. They can’t die unless their head is cut off.
 
-**PRODUCER GUY:** Wait, so the prize for being the last immortal is... becoming mortal? So he can have kids? After centuries of fighting to the death?
+**PRODUCER GUY:** Decapitation. Very specific weakness.
 
-**SCREENWRITER GUY:** **IT'S A METAPHOR! FOR HUMANITY! AND LOVE! AND THE FUTURE!**
+**SCREENWRITER GUY:** Yes! And they’re all part of something called "The Game." They have to fight until only one is left, and the winner gets "The Prize."
 
-**PRODUCER GUY:** Look, this sounds like a lot of sword fighting, some really questionable accents, and a mythology that's... fluid, at best. But you know what? With Queen doing the soundtrack, it's probably going to be a cult classic.
+**PRODUCER GUY:** What’s The Prize? A really nice sword?
+
+**SCREENWRITER GUY:** We’ll find out at the end! So after a fun training montage, The Kurgan finds them and cuts off Ramírez’s head.
+
+**PRODUCER GUY:** Oh no! Not his vaguely-accented mentor!
+
+**SCREENWRITER GUY:** It’s very tragic. So then we jump forward to 1985 New York City. Connor is now living under the name Russell Nash and he’s an antique dealer.
+
+**PRODUCER GUY:** Of course he is.
+
+**SCREENWRITER GUY:** And The Kurgan is there too! The final immortals are being drawn together for "The Gathering." The movie actually starts with Connor fighting another immortal in a parking garage. After he lops his head off, he absorbs his energy in an event called "The Quickening."
+
+**PRODUCER GUY:** The Quickening, you say. Is that a subtle process?
+
+**SCREENWRITER GUY:** Not at all! It involves lightning shooting out of the body, windows exploding, and cars going haywire.
+
+**PRODUCER GUY:** So it must be difficult to keep this whole immortal war a secret from the public.
+
+**SCREENWRITER GUY:** Actually, it’s going to be super easy, barely an inconvenience.
+
+**PRODUCER GUY:** Oh, really?
+
+**SCREENWRITER GUY:** Yeah, see, a forensic metallurgist named Brenda finds a piece of a 600-year-old sword at the modern crime scene, tracks Connor down, and he just tells her everything. And then they fall in love.
+
+**PRODUCER GUY:** She just accepts that her new boyfriend is a 450-year-old magic Scotsman who fights other magic people for a vague prize?
+
+**SCREENWRITER GUY:** Pretty much! Meanwhile, The Kurgan is just tearing up New York, driving like a maniac, kidnapping Brenda, and even licking a priest.
+
+**PRODUCER GUY:** Why does he lick a priest?
+
+**SCREENWRITER GUY:** To show how evil he is! So it all culminates in a final battle between Connor and The Kurgan. "There can be only one!"
+
+**PRODUCER GUY:** He says the thing!
+
+**SCREENWRITER GUY:** He does! They have an epic sword fight on a rooftop, and Connor finally cuts off The Kurgan’s head, winning The Game!
+
+**PRODUCER GUY:** Amazing! So he gets The Prize! What is it? What does he win?
+
+**SCREENWRITER GUY:** He becomes mortal, so he can grow old and die. He also gains the ability to read the minds of every single person on Earth, all at once.
+
+**PRODUCER GUY:** Wait, he can hear everyone’s thoughts? All the time? That sounds absolutely horrible. That’s not a prize, that’s a curse! A one-way ticket to a padded cell!
+
+**SCREENWRITER GUY:** Well, he can use it to help humanity, maybe. And the whole movie is set to an amazing soundtrack by the rock band Queen!
+
+**PRODUCER GUY:** A French Scotsman, a Scottish Egyptian, constant beheadings, and a Queen soundtrack? It's confusing, ridiculous, and sounds absolutely incredible. This movie is going to be a cult classic!
 
 ***
 
-**HIGHLY ANTICIPATED SWORD-FIGHTING EPIC FAILS TO STIR BOX OFFICE, FINDING ITS TRUE CALLING ON VIDEO AND CABLE TV**
+**VARIETY: HIGHLANDER PROVES THERE CAN BE ONLY ONE... MOVIE, FOLLOWED BY FOUR SEQUELS, A TV SERIES, AND AN ANIME FILM**

@@ -1,64 +1,85 @@
-Sure, here is the pitch meeting for the movie *The Hunger Games*:
-## Pitch Meeting: The Hunger Games
+**PRODUCER GUY:** So, you have a Young Adult movie for me?
 
-**INT. STUDIO EXECUTIVE OFFICE - DAY**
+**SCREENWRITER GUY:** Yes sir, I do. It’s based on a super popular book series, so a bunch of the work is already done.
 
-PRODUCER GUY sits across from SCREENWRITER GUY, who holds a thick manuscript.
+**PRODUCER GUY:** Oh, capitalizing on a built-in fanbase is tight! So what’s it about? A moody girl who falls in love with a sparkly vampire?
 
-**PRODUCER GUY:** So, what's the big idea?
+**SCREENWRITER GUY:** Close! It’s about a moody girl who’s forced into a televised fight to the death with other children.
 
-**SCREENWRITER GUY:** Okay, so it's a dystopian future, right? North America is now this country called Panem, and it's divided into a super rich Capitol and twelve impoverished districts.
+**PRODUCER GUY:** Oh… for kids! That’s unexpected. Tell me more.
 
-**PRODUCER GUY:** Uh-huh. And?
+**SCREENWRITER GUY:** So we’re in this dystopian country called Panem, which is run by the super-rich Capitol. As punishment for a rebellion that happened a long time ago, every year they hold an event called the Hunger Games.
 
-**SCREENWRITER GUY:** And as a punishment for a past rebellion, every year, each district has to send two of their kids – a boy and a girl – to fight to the death in a televised event called the Hunger Games!
+**PRODUCER GUY:** Let me guess, it’s not actually a game and there’s very little food involved.
 
-**PRODUCER GUY:** Whoa, whoa, whoa. Kids fighting to the death? On TV? Isn't that... a little dark?
+**SCREENWRITER GUY:** You are correct, sir. They take one boy and one girl from each of the twelve districts and put them in a giant arena to kill each other until only one is left alive.
 
-**SCREENWRITER GUY:** It's for a young adult audience! It's super edgy! And it's a critique of reality television and governmental oppression! It's got layers!
+**PRODUCER GUY:** So it’s a battle royale with teenagers. Why hasn’t anyone thought of this before? It’s brilliant!
 
-**PRODUCER GUY:** Right, layers. So, what's our hook? Who's our hero?
+**SCREENWRITER GUY:** Right? And our main character is Katniss Everdeen. When her 12-year-old sister, Primrose, gets picked at the lottery, Katniss volunteers to take her place.
 
-**SCREENWRITER GUY:** We follow Katniss Everdeen. She's from District 12, the poorest district, where people are literally starving. Her little sister, Prim, gets chosen for the Games, and Katniss volunteers to take her place.
+**PRODUCER GUY:** What a great sister! Sacrificing herself like that. So she goes into the arena and dies immediately, roll credits?
 
-**PRODUCER GUY:** Okay, a selfless hero. I like it. So, she's going to win, right? Because she's the protagonist.
+**SCREENWRITER GUY:** Well, no, she's actually a really good hunter with a bow and arrow, so she's got a fighting chance. The boy from her district is Peeta Mellark, the baker's son.
 
-**SCREENWRITER GUY:** Well, she's gonna try. She's really good with a bow and arrow because she hunts for her family.
+**PRODUCER GUY:** What’s his special skill? Throwing rock-hard sourdough at people?
 
-**PRODUCER GUY:** A bow and arrow, you say? Very on brand for a young adult heroine. So, what happens in these games? Is it like a big arena?
+**SCREENWRITER GUY:** Not quite. But during the pre-game interviews, he confesses that he’s had a massive crush on Katniss for years.
 
-**SCREENWRITER GUY:** Oh, it's a massive, elaborate arena, and the Gamemakers can control everything in it! They can unleash genetically engineered animals, start forest fires, drain lakes... it's basically a giant playground of death for their entertainment.
+**PRODUCER GUY:** Oh, a pre-murder-game romance declaration. Bold strategy. Let’s see if it pays off for him.
 
-**PRODUCER GUY:** So, basically, *The Running Man* meets *Battle Royale*, but with teenagers.
+**SCREENWRITER GUY:** It does! It gets them a ton of sponsors. They're called the "star-crossed lovers." They even get a mentor, Haymitch, who won the games years ago.
 
-**SCREENWRITER GUY:** Uh, no, it's completely original. Anyway, Katniss has to deal with other tributes, including these "Careers" who have been training their whole lives for this. And there's also Peeta, the other tribute from her district. He's a baker.
+**PRODUCER GUY:** So he’ll be their wise old trainer who guides them to victory.
 
-**PRODUCER GUY:** A baker? Can he fight?
+**SCREENWRITER GUY:** He’s mostly just a surly drunk who tells them to get people to like them.
 
-**SCREENWRITER GUY:** Not really, but he's good at camouflaging himself like a rock. And he's in love with Katniss!
+**PRODUCER GUY:** Oh, fantastic. So the games start and it’s an absolute bloodbath right away. Katniss wisely runs into the woods to hide.
 
-**PRODUCER GUY:** Oh, a love triangle! Smart. The kids love a good love triangle. So, she's trying to win, but also falling in love?
+**SCREENWRITER GUY:** Exactly. And at one point, she’s treed by a group of the meaner tributes, so she cuts down a nest of genetically engineered wasps called Tracker Jackers and drops it on them.
 
-**SCREENWRITER GUY:** Yeah, it gets complicated. Especially when the Gamemakers introduce a rule change that two tributes from the same district can win. So, Katniss and Peeta team up! And they fake a romance to get sponsors!
+**PRODUCER GUY:** Genetically engineered murder hornets are super tight! What happens when you get stung?
 
-**PRODUCER GUY:** Wait, so they're faking it for the cameras? That's... surprisingly cynical for a young adult book. I love it! So, they both win, and everything's great?
+**SCREENWRITER GUY:** You have terrifying hallucinations and can possibly die. One of the girls who gets stung, Glimmer, dies from it.
 
-**SCREENWRITER GUY:** Well, not exactly. The Gamemakers revoke the rule change at the last minute, so only one of them can win.
+**PRODUCER GUY:** Wow wow wow wow. So this movie is just piling up the dead kids.
 
-**PRODUCER GUY:** Oh, no! What a twist! So, one of them has to kill the other?
+**SCREENWRITER GUY:** It sure is! Then the Gamemakers, the people running the show, announce a rule change: two people from the same district can win together.
 
-**SCREENWRITER GUY:** Nope! Katniss pulls out some poisonous berries, and they threaten to eat them together, basically saying "if we die, there's no victor for you."
+**PRODUCER GUY:** Oh, so the producers are shipping Katniss and Peeta, too. I get it.
 
-**PRODUCER GUY:** So, they're blackmailing the Capitol? With berries?
+**SCREENWRITER GUY:** So Katniss finds Peeta, who is badly injured, and they hide out in a cave. She plays up the romance angle to get sponsors to send them medicine.
 
-**SCREENWRITER GUY:** It's a symbolic act of defiance! It shows the Capitol that they don't own them! And it works! They both win!
+**PRODUCER GUY:** Faking a relationship for clout and free stuff? This movie is just like real life!
 
-**PRODUCER GUY:** Brilliant! So, a feel-good ending where they stick it to the man! This is going to be huge. We'll cast some fresh faces, get a good director, and people will flock to see kids fighting to the death! It's super easy, barely an inconvenience.
+**SCREENWRITER GUY:** So they survive, and eventually, it’s just them and one other guy, Cato, left. They have a big fight and Cato gets thrown to a pack of vicious mutant dogs. Katniss shoots him with an arrow to put him out of his misery.
 
-**SCREENWRITER GUY:** Actually, it sets up for some pretty intense sequels where she becomes the face of a rebellion.
+**PRODUCER GUY:** A mercy killing. How thoughtful in a movie about kids killing kids. So they win!
 
-**PRODUCER GUY:** Details, details! I'm talking about this first one. This is gonna make us some serious money.
+**SCREENWRITER GUY:** Not quite! The Gamemakers revoke the rule change and say there can only be one winner.
 
----
+**PRODUCER GUY:** Those sneaky TV producers! You can’t trust them.
 
-**NEWS HEADLINE: "THE HUNGER GAMES DEFIES EXPECTATIONS, OPENS TO MASSIVE $152.5 MILLION WEEKEND!"**
+**SCREENWRITER GUY:** You can’t. But Katniss has a plan. She pulls out a handful of deadly poisonous berries called nightlock and gives half to Peeta. They’re going to eat them at the same time, leaving the games with no winner.
+
+**PRODUCER GUY:** Oh, an ultimatum! Is it going to be hard for her to pull this off?
+
+**SCREENWRITER GUY:** Actually, it’s going to be super easy. Barely an inconvenience.
+
+**PRODUCER GUY:** Oh, really?
+
+**SCREENWRITER GUY:** Yeah, the Gamemakers panic and announce that they are both the winners right before they can eat the berries. So they go home as heroes.
+
+**PRODUCER GUY:** Amazing! But I’m sensing the head of the TV network, President Snow, is not going to be happy about being publicly outsmarted by a teenager.
+
+**SCREENWRITER GUY:** He is not, sir. She basically lit the spark of a rebellion.
+
+**PRODUCER GUY:** So there’s going to be a sequel?
+
+**SCREENWRITER GUY:** There are going to be three more movies, sir. And we’re splitting the last book in two.
+
+**PRODUCER GUY:** Of course you are. Money is tight. I love it! A violent YA story about child murder that will spawn a massive global franchise. What could go wrong?
+
+***
+
+**The Hunger Games Shatters Box Office Records, Launching Jennifer Lawrence into Superstardom and Grossing Nearly $700 Million Worldwide.**

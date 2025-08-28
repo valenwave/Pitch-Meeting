@@ -1,55 +1,64 @@
-Sure, here is the pitch meeting for *Pitch Perfect*:
-**Setting:** A bland, overly-lit office.
+**PRODUCER GUY:** So, you have a movie for me?
 
-**Characters:**
+**SCREENWRITER GUY:** Yes sir, I do. It’s a musical comedy about the intense, high-stakes world of collegiate a cappella.
 
-* **PRODUCER GUY:** Mid-fifties, wearing an expensive suit, looking perpetually bored.
-* **SCREENWRITER GUY:** Young, enthusiastic, holding a very thick script.
+**PRODUCER GUY:** Aca-scuse me? Did you say collegiate a cappella?
 
-**(SCENE START)**
+**SCREENWRITER GUY:** I did! See? The puns write themselves.
 
-**PRODUCER GUY:** Alright, so what have you got for me today, *Screenwriter Guy*? Try to keep it quick. My yacht won't polish itself.
+**PRODUCER GUY:** Wow. So what’s the story?
 
-**SCREENWRITER GUY:** (Grinning) Okay, so get this: it's a musical!
+**SCREENWRITER GUY:** We open on the Barden Bellas, an all-girl a cappella group, at the national championship. But then, disaster strikes. Their leader, Aubrey, gets stage fright and projectile vomits all over the stage.
 
-**PRODUCER GUY:** (Sighs deeply) A musical. So, like, *Glee*, but for the big screen?
+**PRODUCER GUY:** Oh my god! That’s disgusting! I love it! What happens then?
 
-**SCREENWRITER GUY:** Even better! It's about collegiate a cappella groups!
+**SCREENWRITER GUY:** Well, four months later, the Bellas are a campus laughingstock and they need new members. We meet our main character, Beca. She’s an aspiring music producer who would rather be in LA, but her professor dad is forcing her to go to college for a year.
 
-**PRODUCER GUY:** (Raises an eyebrow) A capella? So, like, singing without instruments? Just...voices?
+**PRODUCER GUY:** So she’s too cool for school. Got it.
 
-**SCREENWRITER GUY:** Exactly! It's a whole world out there, with fierce rivalries, intense competitions, and a lot of very specific hand movements.
+**SCREENWRITER GUY:** Exactly. She joins the Bellas to appease her dad, along with a group of other misfits. There's a girl who speaks so quietly you can’t hear her, a girl who is overly sexual, and an Australian girl who calls herself "Fat Amy."
 
-**PRODUCER GUY:** Hand movements, huh? Sounds... riveting. What's the plot? Do they, like, save the world with their vocal harmonies?
+**PRODUCER GUY:** She calls herself Fat Amy?
 
-**SCREENWRITER GUY:** Not exactly. Our main character, Beca, she's an aspiring DJ, a bit of an outcast. She gets kinda strong-armed into joining the Barden Bellas, an all-female a cappella group.
+**SCREENWRITER GUY:** Yeah, so "twig bitches" don't do it behind her back.
 
-**PRODUCER GUY:** "Strong-armed," you say? Is it because they're *that* good?
+**PRODUCER GUY:** That’s actually brilliant. This character is going to be a star.
 
-**SCREENWRITER GUY:** Well, their current leader, Aubrey, she's a bit... traditional. And she projectile vomited on stage during last year's finals, which kinda messed things up for them.
+**SCREENWRITER GUY:** I think so too. Anyway, the group is run by Aubrey, the vomiter, and her much nicer friend, Chloe. Aubrey is super strict and insists they use the same setlist of old songs that failed them last year.
 
-**PRODUCER GUY:** (Nods slowly) Ah, yes. The ol' on-stage projectile vomit trope. Always a crowd-pleaser. So, Beca wants to shake things up, but Aubrey wants to stick to their tired old medleys? Is that it?
+**PRODUCER GUY:** Sounds like a recipe for success.
 
-**SCREENWRITER GUY:** You got it! And there's also a rival all-male group, the Treblemakers, led by this arrogant guy named Bumper. And Beca starts to maybe, possibly, kinda like a guy in the Treblemakers.
+**SCREENWRITER GUY:** Beca thinks they should modernize their sound, but Aubrey refuses. Also, Beca starts a flirty rivalry with Jesse, a guy from the all-male rival group, the Treblemakers.
 
-**PRODUCER GUY:** (Groans) A forbidden collegiate a cappella romance? So original. Does he teach her about classic movies or something equally charmingly dorky?
+**PRODUCER GUY:** Aca-dorable. So there's some romance.
 
-**SCREENWRITER GUY:** He does! He wants to give her a "movie-cation"! And there's a character named Fat Amy, who calls herself that so other people can't call her that behind her back! And she's hilarious!
+**SCREENWRITER GUY:** Of course. There's also a scene where all the a cappella groups meet in an empty pool at night for a spontaneous singing battle called a Riff-Off.
 
-**PRODUCER GUY:** "Fat Amy." Groundbreaking character development. So, these warring vocal groups, they have a big final showdown, I assume? Where they do some kind of crazy mash-up that's never been done before, even though they've been doing these kinds of competitions for decades?
+**PRODUCER GUY:** A Riff-Off in an empty pool? Why is it empty?
 
-**SCREENWRITER GUY:** Nailed it! And it's all about finding their own sound, embracing individuality, and the power of friendship! And cups!
+**SCREENWRITER GUY:** So their voices echo better, probably. Anyway, Beca shows off her skills, but the Bellas lose on a technicality.
 
-**PRODUCER GUY:** Cups?
+**PRODUCER GUY:** The drama is palpable. So how do they get to the finals?
 
-**SCREENWRITER GUY:** Yeah, there's a whole song with cups! It's gonna be huge!
+**SCREENWRITER GUY:** Well, at the semi-finals, Aubrey insists on the old, boring setlist again. But Beca, in a moment of rebellion, improvises and mashes up another song into the performance. The crowd loves it, but Aubrey is furious and kicks Beca out of the group. They end up placing third and don't make the finals.
 
-**PRODUCER GUY:** (Stares blankly for a moment, then chuckles mirthlessly) Alright, *Screenwriter Guy*. You know what? This sounds absolutely ridiculous. A college musical about singing with no instruments, starring a girl who vomits on stage and another named Fat Amy, with a song about cups. I'm going to greenlight this. I have a good feeling about it.
+**PRODUCER GUY:** Oh no! So the movie is over?
 
-**(Producer Guy leans back, a sly smirk on his face. Cut to black.)**
+**SCREENWRITER GUY:** Not quite! It’s going to be super easy, barely an inconvenience for them to get back in.
 
----
+**PRODUCER GUY:** Oh, really?
 
-**NEWS HEADLINE FLASH:**
+**SCREENWRITER GUY:** Yeah, see, it turns out the lead singer of the second-place group was secretly in high school, so they get disqualified. The Bellas are back in!
 
-**"PITCH PERFECT BECOMES UNEXPECTED SLEEPER HIT, EARNING OVER $115 MILLION WORLDWIDE AND SPAWNING TWO SEQUELS. CUPS SONG GOES PLATINUM."**
+**PRODUCER GUY:** Wow, that is incredibly convenient!
+
+**SCREENWRITER GUY:** So Beca rejoins the group, Aubrey finally relinquishes control, and they put together a brand-new, modern mashup for the finals. They perform it, it's amazing, and they beat the Treblemakers to win the national championship. Beca and Jesse also kiss.
+
+**PRODUCER GUY:** Wow. So it's every underdog sports movie ever, but with singing instead of sports.
+
+**SCREENWRITER GUY:** Pretty much.
+
+**PRODUCER GUY:** It’s a formulaic story with quirky characters, catchy pop songs, and a vomit scene. I don't see how this could possibly fail.
+
+***
+### **The Hollywood Reporter: 'Pitch Perfect' Becomes Sleeper Hit of the Year, Grossing Over $115 Million Worldwide and Spawning Two Sequels.**

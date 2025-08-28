@@ -1,45 +1,53 @@
-**PRODUCER GUY:** So, what do you got for me?
+**PRODUCER GUY:** So, you have a movie for me about a website?
 
-**SCREENWRITER GUY:** Okay, so it’s about a guy who creates a website.
+**SCREENWRITER GUY:** Yes sir, I do. It’s about the founding of Facebook.
 
-**PRODUCER GUY:** A website? You mean like... GeoCities? Is it about GeoCities? Because I remember those sparkly GIFs, man. They were *next level*.
+**PRODUCER GUY:** Facebook? The thing my aunt uses to post pictures of her cats and complain about the government? Sounds thrilling.
 
-**SCREENWRITER GUY:** No, no. Not GeoCities. This is… a social networking website. For connecting people.
+**SCREENWRITER GUY:** Well, it's more about the drama and betrayal behind the scenes. So, we start with our main character, Mark Zuckerberg, a Harvard student, who gets dumped by his girlfriend.
 
-**PRODUCER GUY:** Oh, like MySpace? We gotta get Tom involved! He’s everybody’s first friend! That’s, like, his whole thing!
+**PRODUCER GUY:** Ah, a classic tale of heartbreak. Does he write a sad song on an acoustic guitar?
 
-**SCREENWRITER GUY:** Not MySpace. This is… *the* social network. It's called Facebook.
+**SCREENWRITER GUY:** No, he gets drunk, goes back to his dorm, and writes a nasty blog post about her. Then, he creates a website called Facemash where students can rate the attractiveness of female students.
 
-**PRODUCER GUY:** Face… book? So it’s like a book, but with faces in it? Like a yearbook, but… digital? Is it a picture book? Is it for kids? Because, you know, we really need to crack that toddler market. They’re super into screens now.
+**PRODUCER GUY:** Wow. So our hero is kind of a jerk.
 
-**SCREENWRITER GUY:** No, it’s for college students. And it’s about how this guy, Mark Zuckerberg, created it, and all the legal drama that happened because of it.
+**SCREENWRITER GUY:** Exactly! This gets him in trouble with Harvard but also gets him noticed by the Winklevoss twins. They're handsome, rich, and row crew.
 
-**PRODUCER GUY:** Legal drama? For a website? Is he, like, pirating movies on it? Because that's a *real* problem, man. The Internet is full of pirates. They should just make all the movies available for free! Then nobody would pirate them! It's a simple solution!
+**PRODUCER GUY:** So, they’re the opposite of our main character. Got it.
 
-**SCREENWRITER GUY:** No, it's about him supposedly stealing the idea from these twins, the Winklevosses, and also screwing over his best friend, Eduardo Saverin, on the business side.
+**SCREENWRITER GUY:** They have an idea for a Harvard-exclusive social network and want Mark to code it for them. Mark agrees, but then he gets a better idea. He goes to his friend, Eduardo Saverin, for a thousand dollars to start his own site called "TheFacebook."
 
-**PRODUCER GUY:** Wait, so our main character is… kind of an unlikeable jerk? That’s usually not a selling point, man. People like heroes. Like, Superman. He flies around, he’s super strong, he never gets sued.
+**PRODUCER GUY:** So he just steals their idea?
 
-**SCREENWRITER GUY:** He's a genius, but socially awkward. And the story is told through these deposition scenes, where he's being sued by both parties.
+**SCREENWRITER GUY:** He "improves" upon it. TheFacebook becomes a huge hit, and the Winklevoss twins are not happy. They complain to the president of Harvard, who basically tells them to get lost.
 
-**PRODUCER GUY:** So it's a courtroom drama… but about code? Is there, like, a dramatic montage of him typing really fast? Because that’s visually stunning, man. We could, like, add some cool sound effects. *Click-clack-whoosh!*
+**PRODUCER GUY:** An adult who doesn't see the potential of the internet? Shocking.
 
-**SCREENWRITER GUY:** There's a scene where he creates "Facemash" which lets people rate college girls. That gets him into trouble.
+**SCREENWRITER GUY:** Then, Napster co-founder Sean Parker gets involved. He tells Mark to drop the "The" from TheFacebook. Just "Facebook."
 
-**PRODUCER GUY:** Oooh, *controversy!* I like it! We can market it as edgy! "See the website that broke the internet… and a lot of hearts!"
+**PRODUCER GUY:** Wow, what a visionary. That's a billion-dollar idea right there.
 
-**SCREENWRITER GUY:** And then Sean Parker, from Napster, gets involved.
+**SCREENWRITER GUY:** It is! Parker convinces Mark to move to California, leaving Eduardo in New York to handle the business side of things. But then, Eduardo gets mad that Parker is making business decisions and freezes the company's bank account.
 
-**PRODUCER GUY:** Napster! See! I knew there was piracy in here somewhere! Is he going to show him how to illegally download music on Facebook? Because then it’s a crossover event! We can call it "The Social Pirate Network!"
+**PRODUCER GUY:** Oh, a financial squabble. My favorite kind of drama.
 
-**SCREENWRITER GUY:** No, Parker convinces Zuckerberg to drop "The" from "TheFacebook" and just call it "Facebook." And he gets him to move to California.
+**SCREENWRITER GUY:** So Mark, feeling betrayed, has the new investment deal structured to dilute Eduardo’s shares from 34% to 0.03%.
 
-**PRODUCER GUY:** Wait, so the big dramatic moment is… removing "The"? That’s not exactly "Luke, I am your father," man. That’s more like "Luke, I’m changing your address to California."
+**PRODUCER GUY:** That seems... harsh.
 
-**SCREENWRITER GUY:** It's about the birth of a global phenomenon. And the betrayal of friendship. And the lonely pursuit of success.
+**SCREENWRITER GUY:** It is! Eduardo finds out and vows to sue him. This all plays out through depositions for two lawsuits: one from the Winklevoss twins for stealing their idea, and one from Eduardo for getting screwed over.
 
-**PRODUCER GUY:** Okay, okay, I'm getting it. It's like *Citizen Kane*, but instead of "Rosebud," it's "friend request pending." I think it's got potential, man. People love stories about rich guys who don't have any friends. It makes them feel better about their own lives. We can totally market this.
+**PRODUCER GUY:** So it's a legal drama now? What happened to the fun college stuff?
+
+**SCREENWRITER GUY:** That's all in flashbacks! The movie jumps between the depositions and the past, showing how it all went down.
+
+**PRODUCER GUY:** So, who wins in the end?
+
+**SCREENWRITER GUY:** Well, a junior lawyer on Mark's team tells him he’ll settle with Eduardo because Mark’s attitude will make him look bad to a jury. And in the final scene, Mark, now a billionaire, is all alone and sends a friend request to the girl who dumped him at the beginning. He just keeps refreshing the page, waiting for her to accept.
+
+**PRODUCER GUY:** Wow. So he has all the money and success in the world, but he's still just that lonely kid from the beginning. That's deep. It sounds like a movie that will make people think about friendship, ambition, and what it means to be connected in the modern world. It will probably win a bunch of awards.
 
 ***
 
-**NEWS HEADLINE: "THE SOCIAL NETWORK" DEFIES EXPECTATIONS, BECOMES CRITICAL AND COMMERCIAL JUGGERNAUT**
+**The Hollywood Reporter: "The Social Network" Sweeps the Oscars, Winning Best Picture, Best Director, and Best Adapted Screenplay.**
