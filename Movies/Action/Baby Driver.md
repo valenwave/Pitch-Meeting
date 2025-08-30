@@ -1,77 +1,77 @@
-**PRODUCER GUY:** So you have a movie for me?
+**PRODUCER GUY:** So, you have a movie for me?
 
-**SCREENWRITER GUY:** Yes sir, I do. It’s about a getaway driver, and we’re going to call it *Baby Driver*.
+**SCREENWRITER GUY:** Yes sir, I do. It’s an action movie that’s also kind of a musical.
 
-**PRODUCER GUY:** Oh, so it’s about a baby who drives? That sounds adorable and completely irresponsible.
+**PRODUCER GUY:** A musical? Are people going to be bursting into song in the middle of a car chase?
 
-**SCREENWRITER GUY:** No, no, his name is Baby. Well, his real name is Miles, but he goes by Baby.
+**SCREENWRITER GUY:** No, no, nothing like that. So our main character is this young getaway driver, and his name is Baby.
 
-**PRODUCER GUY:** “B-A-B-Y, Baby?”
+**PRODUCER GUY:** His name is Baby? Like an infant?
 
-**SCREENWRITER GUY:** Exactly! So he’s this super talented getaway driver who works for a crime boss named Doc to pay off a debt.
+**SCREENWRITER GUY:** Exactly. And he's the best getaway driver in the game, but he has tinnitus from a childhood accident, so he's constantly listening to music on his iPods to drown out the ringing.
 
-**PRODUCER GUY:** Let me guess, he stole Doc's car full of valuable merchandise when he was younger?
+**PRODUCER GUY:** So a job that requires him to be super aware of his surroundings, like listening for police sirens or gunshots, is being done by a guy who has his ears plugged with music all the time?
 
-**SCREENWRITER GUY:** Wow, yes. How did you know?
+**SCREENWRITER GUY:** Yeah! The idea is that he times all of his incredible driving moves to the beat of the song he's listening to. It’s super cool. We open on a bank robbery and he’s just jamming out in the car, and then when the crew gets in, he pulls off this amazing escape perfectly synced to the music.
 
-**PRODUCER GUY:** It’s a classic, sir. So what’s this kid’s deal?
+**PRODUCER GUY:** Wow wow wow… wow. That does sound pretty cool. So who’s he working for?
 
-**SCREENWRITER GUY:** He has tinnitus from a childhood car accident that killed his parents, so he constantly listens to music on his iPods to drown out the ringing.
+**SCREENWRITER GUY:** He works for a crime boss named Doc, played by Kevin Spacey.
 
-**PRODUCER GUY:** So the whole movie is going to have a killer soundtrack?
+**PRODUCER GUY:** Oof. That casting might be tough to escape.
 
-**SCREENWRITER GUY:** You know it! The car chases, the shootouts, everything is choreographed to the music.
+**SCREENWRITER GUY:** Well, see, Baby owes Doc a debt, so he’s forced to be his driver for a rotating crew of criminals. We’ve got this crazy, violent guy named Bats, and a Bonnie and Clyde-type couple named Buddy and Darling.
 
-**PRODUCER GUY:** Musical action sequences are tight!
+**PRODUCER GUY:** A bunch of dangerous criminals working with a guy named Baby. I’m sure they respect him a lot.
 
-**SCREENWRITER GUY:** So, Baby is on his last job to pay off his debt. He meets this waitress named Debora and they fall in love instantly.
+**SCREENWRITER GUY:** They don't at first, but then they see his skills. So, Baby's almost paid off his debt, and he meets this beautiful waitress named Debora and they fall in love instantly. He wants to quit the criminal life, just grab Debora and drive off into the sunset.
 
-**PRODUCER GUY:** Of course they do. He probably wants to leave the life of crime for her, right?
+**PRODUCER GUY:** Oh, so he’s getting out of the game. I’m sure his crime boss will be totally fine with his best driver just leaving.
 
-**SCREENWRITER GUY:** Precisely! But Doc isn't having it. He strong-arms Baby into doing another heist by threatening Debora and his deaf foster father, Joseph.
+**SCREENWRITER GUY:** Actually, it’s going to be super easy, barely an inconvenience. Doc tells him they're square and he’s free to go.
 
-**PRODUCER GUY:** Oh no! A classic villain move. Threatening the loved ones is always a good way to motivate the hero.
+**PRODUCER GUY:** Oh, really?
 
-**SCREENWRITER GUY:** The new heist crew is unhinged. There’s Buddy, his wife Darling, and a real psychopath named Bats.
+**SCREENWRITER GUY:** Well, for a minute. Then Doc finds him at his new pizza delivery job and is like, "You're back in for one last job." He threatens to hurt Debora if Baby doesn't do it.
 
-**PRODUCER GUY:** Sounds like a fun bunch.
+**PRODUCER GUY:** Ah, the classic "one last job." A trope as old as time itself.
 
-**SCREENWRITER GUY:** During an arms deal, Bats figures out the sellers are cops and a massive shootout happens. Later, Bats makes Baby stop at the diner where Debora works. Baby has to stop Bats from killing her.
+**SCREENWRITER GUY:** It’s a classic for a reason! So this last job is to rob a post office, and the crew is Buddy, Darling, and the super unhinged Bats. The whole thing feels wrong, and Baby tries to bail, but he can't.
 
-**PRODUCER GUY:** Wow, that sounds incredibly stressful for a first date.
+**PRODUCER GUY:** Let me guess, the job goes terribly wrong?
 
-**SCREENWRITER GUY:** You have no idea. So, during the big post office heist, Bats kills a security guard. Baby is horrified and refuses to drive. He ends up crashing the car, which impales and kills Bats.
+**SCREENWRITER GUY:** It goes so wrong. Bats kills a security guard for no reason, and then in the getaway, Baby causes a crash that impales Bats on some rebar.
 
-**PRODUCER GUY:** Oh, so he finally snaps!
+**PRODUCER GUY:** Impaled? Yikes. So we’ve gone from a fun car-chase musical to people getting skewered.
 
-**SCREENWRITER GUY:** Big time. Buddy and Darling are furious. There's a chase, a shootout with the police, and Darling gets killed. Buddy blames Baby for her death and wants revenge.
+**SCREENWRITER GUY:** Exactly. The tone shifts! So Baby gets away from the crew and the cops in an epic foot chase. He’s running, jumping, parkouring all over the city.
 
-**PRODUCER GUY:** So now he has a very angry Jon Hamm after him. Yikes.
+**PRODUCER GUY:** He’s the best driver *and* the best parkour runner?
 
-**SCREENWRITER GUY:** It’s going to be tough to escape that.
+**SCREENWRITER GUY:** He’s very talented. So he gets back to Debora and they try to run, but the rest of the crew finds them. There's a big shootout with the police, Darling gets killed, and Buddy gets super mad.
 
-**PRODUCER GUY:** Actually, it’s going to be super easy, barely an inconvenience.
+**PRODUCER GUY:** So now the romantic criminal is a vengeful monster?
 
-**SCREENWRITER GUY:** Oh really?
+**SCREENWRITER GUY:** Yep! He blames Baby for Darling's death. Then Doc, the crime boss, has a sudden change of heart and helps Baby and Debora escape, giving them cash and a car before getting killed by Buddy's crew.
 
-**PRODUCER GUY:** Yeah, Doc is going to have a change of heart and help them escape with money and a plan, right?
+**PRODUCER GUY:** A change of heart? The guy who threatened to break his girlfriend’s legs five minutes ago is now a noble hero?
 
-**SCREENWRITER GUY:** He does! But then Buddy shows up in a stolen police car and kills Doc.
+**SCREENWRITER GUY:** It's a character arc. So this all leads to a final showdown in a parking garage between Baby and Buddy, who is now driving a stolen police car and trying to kill them.
 
-**PRODUCER GUY:** Wow wow wow wow!
+**PRODUCER GUY:** He’s trying to kill a driving prodigy… in a car fight. Bold move.
 
-**SCREENWRITER GUY:** Then there’s a big final showdown in a parking garage. Buddy shoots next to Baby's ears, deafening him. But Debora hits Buddy with a crowbar, and Baby shoots him, causing him to fall to his death.
+**SCREENWRITER GUY:** It is! They play a game of chicken, Baby wins, and Buddy falls to his death. Baby is injured but he gets Debora to safety, only to find the police have him surrounded. He decides to surrender.
 
-**PRODUCER GUY:** So they get away and live happily ever after?
+**PRODUCER GUY:** So he goes to jail?
 
-**SCREENWRITER GUY:** Not quite. They hit a police roadblock, and Baby decides to surrender. He goes to prison.
+**SCREENWRITER GUY:** He does. He gets a 25-year sentence, eligible for parole in five years. And we see Debora writing him letters and waiting for him. The movie ends with him getting out of prison and Debora is waiting for him with a cool car.
 
-**PRODUCER GUY:** Aww, that’s a bummer.
+**PRODUCER GUY:** So the whole movie is this fast-paced, high-octane thrill ride, and it ends with the main character quietly going to jail for five years.
 
-**SCREENWRITER GUY:** But wait! At his trial, all the people he was kind to, including Debora and his foster dad, testify on his behalf. He gets 25 years but is up for parole in five. The movie ends with him getting out and Debora is waiting for him.
+**SCREENWRITER GUY:** It subverts expectations! What do you think?
 
-**PRODUCER GUY:** A crime musical with a happy-ish ending? I love it! It sounds fresh and exciting. People are going to eat this up!
+**PRODUCER GUY:** An action movie driven entirely by a killer soundtrack, starring a bunch of charming actors, and directed by a visionary filmmaker? I think critics are going to absolutely love this.
 
 ***
 
-**News Headline:** "Baby Driver" Races to the Top of the Box Office with Rave Reviews and Oscar Buzz for Sound Editing.
+**The Guardian:** "Baby Driver runs out of gas" - Movie flops at the box office.

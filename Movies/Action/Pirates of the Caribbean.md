@@ -1,89 +1,81 @@
 **PRODUCER GUY:** So you have a movie for me?
 
-**SCREENWRITER GUY:** Yes sir, I do. It’s based on a theme park ride.
+**SCREENWRITER GUY:** Yes sir, I do. It’s about a theme park, but with a fun twist.
 
-**PRODUCER GUY:** A movie based on a theme park ride? That sounds like a terrible idea. I love it, what have you got?
+**PRODUCER GUY:** Oh, I like fun twists. What is it?
 
-**SCREENWRITER GUY:** *Pirates of the Caribbean*!
+**SCREENWRITER GUY:** The attractions are dinosaurs. Real, live dinosaurs.
 
-**PRODUCER GUY:** Fire away.
+**PRODUCER GUY:** Oh. So, you’re telling me some rich guy decided it was a good idea to bring back giant prehistoric predators for entertainment?
 
-**SCREENWRITER GUY:** So the movie opens on a ship sailing through the fog. We meet a young girl named Elizabeth Swann, who finds a shipwreck and a boy named Will Turner floating in the water. He's wearing a weird gold pirate medallion.
+**SCREENWRITER GUY:** Exactly! His name is John Hammond, and he’s spared no expense. He’s got scientists who extracted dinosaur DNA from mosquitos trapped in amber.
 
-**PRODUCER GUY:** Pirate bling is tight!
+**PRODUCER GUY:** Mosquitos in amber? How do they even know they’ll get dinosaur DNA and not, like, ancient tree frog DNA?
 
-**SCREENWRITER GUY:** It sure is. Elizabeth takes it from him so no one thinks he's a pirate. Flash forward eight years, and we meet our hero, Captain Jack Sparrow, making a grand entrance into Port Royal.
+**SCREENWRITER GUY:** Super easy, barely an inconvenience. They just know. And to fill in the gaps in the DNA sequence, they use frog DNA.
 
-**PRODUCER GUY:** Oh, he must have a really impressive ship!
+**PRODUCER GUY:** Frog DNA. Okay. I’m sure that won’t have any unforeseen consequences whatsoever. So, who are our main characters?
 
-**SCREENWRITER GUY:** He does not. He's standing on the mast of a tiny boat that is actively sinking. He majestically steps off the mast right onto the dock just as the boat disappears under the waves.
+**SCREENWRITER GUY:** We’ve got Dr. Alan Grant, a paleontologist who hates kids, and his paleobotanist partner, Dr. Ellie Sattler. We’ve also got a chaotician named Ian Malcolm.
 
-**PRODUCER GUY:** So he's a bit of a bummer.
+**PRODUCER GUY:** A chaotician? What does he do?
 
-**SCREENWRITER GUY:** He's an icon! Anyway, Elizabeth, who is now all grown up, faints and falls off a cliff into the ocean because her corset is too tight.
+**SCREENWRITER GUY:** He mostly just points out that this whole idea is terrible and is going to end in disaster, all while wearing a cool leather jacket. He’s the voice of the audience, really.
 
-**PRODUCER GUY:** A classic corset fainting.
+**PRODUCER GUY:** I like him already.
 
-**SCREENWRITER GUY:** Exactly. The medallion she's wearing sends out a big magical pulse through the ocean.
+**SCREENWRITER GUY:** So Hammond brings them all to the island to get their endorsement. He also brings his two grandchildren, Lex and Tim, because what’s a dangerous prehistoric theme park without children running around?
 
-**PRODUCER GUY:** The medallion has pirate Wi-Fi?
+**PRODUCER GUY:** It’s just not the same, is it? So, I’m guessing things go horribly wrong.
 
-**SCREENWRITER GUY:** Sort of. Jack Sparrow jumps in to save her, but then the Commodore tries to arrest him for being a pirate. So Jack takes Elizabeth hostage and has a very wacky escape. But that night, a spooky ship called the Black Pearl attacks the town because they felt the medallion's pulse. They kidnap Elizabeth.
+**SCREENWRITER GUY:** Oh, you bet they do. There’s a disgruntled computer programmer, Dennis Nedry, who’s a bit of a slob. He gets paid to steal dinosaur embryos.
 
-**PRODUCER GUY:** Oh no!
+**PRODUCER GUY:** And to do that, he has to shut down the park’s security systems?
 
-**SCREENWRITER GUY:** It gets worse! See, the pirates on the Black Pearl are cursed. They stole a chest of Aztec gold and now they're immortal skeletons in the moonlight who can't feel anything.
+**SCREENWRITER GUY:** The entire park’s security system, including the very important electric fences for the dinosaur paddocks. He does this during a tropical storm, by the way.
 
-**PRODUCER GUY:** That sounds like a terrible curse.
+**PRODUCER GUY:** Of course he does. Let me guess, the T-Rex gets out.
 
-**SCREENWRITER GUY:** It is! To break it, they have to return all the gold, and repay a blood debt from Bootstrap Bill Turner. Elizabeth told the pirates her last name was Turner, so they think she's his kid.
+**SCREENWRITER GUY:** The T-Rex gets out and it is awesome! It attacks the tour vehicles, eats a lawyer who was hiding in a bathroom, and injures Ian Malcolm. It’s a whole thing.
 
-**PRODUCER GUY:** Wow wow wow... wow. That was a terrible decision.
+**PRODUCER GUY:** Eating a lawyer sounds like a real crowd-pleaser. So what happens to our hero, the slobby computer guy?
 
-**SCREENWRITER GUY:** So Will Turner, who is actually Bootstrap Bill's son, gets Jack Sparrow to help him rescue Elizabeth. Jack agrees because the captain of the Black Pearl, Barbossa, was his first mate who led a mutiny and stole the ship from him.
+**SCREENWRITER GUY:** He gets lost in the storm, crashes his jeep, and gets eaten by a Dilophosaurus that spits venom in his face.
 
-**PRODUCER GUY:** A pirate with a tragic backstory.
+**PRODUCER GUY:** Wow. That’s a rough way to go. So now everyone’s scattered and being hunted by dinosaurs?
 
-**SCREENWRITER GUY:** You know it. So they need a ship, and they decide to steal one from the Royal Navy.
+**SCREENWRITER GUY:** Pretty much. Dr. Grant has to protect the kids, even though he doesn’t like them. They have to climb down a giant tree and evade the T-Rex again when it starts chasing a herd of Gallimimus.
 
-**PRODUCER GUY:** How are two guys going to steal a whole Navy vessel?
+**PRODUCER GUY:** Okay, sounds exciting. What about the other dinosaurs? I feel like we’re missing some.
 
-**SCREENWRITER GUY:** Actually, it's going to be super easy, barely an inconvenience.
+**SCREENWRITER GUY:** Oh, I was getting to the best part. The Velociraptors. They’re super smart and can open doors.
+
+**PRODUCER GUY:** They can open doors?
+
+**SCREENWRITER GUY:** They’re problem-solvers. So while everyone’s trying to get the power back on, the raptors get out and start hunting everyone in the visitor center. There’s a super intense scene in a kitchen with the kids.
+
+**PRODUCER GUY:** A kitchen fight with raptors. I love it. How do they escape that?
+
+**SCREENWRITER GUY:** The kids manage to lock one in a freezer. It’s very clever. Then they all meet up and try to get to the control room.
+
+**PRODUCER GUY:** And I’m guessing the raptors are hot on their heels.
+
+**SCREENWRITER GUY:** You know it. They’re cornered in the main lobby, about to become raptor chow.
+
+**PRODUCER GUY:** Well, it’s going to be tough to escape that.
+
+**SCREENWRITER GUY:** Actually, it’s going to be super easy, barely an inconvenience.
 
 **PRODUCER GUY:** Oh, really?
 
-**SCREENWRITER GUY:** Yeah, see, Jack tricks all the sailors into guarding one huge ship, the *Dauntless*, while he and Will just walk onto the other, faster ship, the *Interceptor*, which is now completely empty.
+**SCREENWRITER GUY:** Yeah, because right at that moment, the T-Rex bursts in and kills the raptors, saving everyone!
 
-**PRODUCER GUY:** The Royal Navy is apparently staffed by morons.
+**PRODUCER GUY:** The T-Rex is the hero now? The same one that was trying to eat them this whole time?
 
-**SCREENWRITER GUY:** The dumbest. So they get a crew, find the pirates, and Will rescues Elizabeth. But then Jack gets captured and Barbossa maroons both Jack and Elizabeth on a deserted island.
+**SCREENWRITER GUY:** The enemy of my enemy is my friend who is also a giant, terrifying dinosaur. It gives them enough time to escape to the helicopter and get off the island.
 
-**PRODUCER GUY:** Oh no, they're doomed!
-
-**SCREENWRITER GUY:** Nope! Elizabeth sets a giant pile of smuggled rum on fire, and the Navy, who just happens to be passing by, rescues them. So Jack makes a deal to lead the Navy to the pirates.
-
-**PRODUCER GUY:** A classic double-cross.
-
-**SCREENWRITER GUY:** It's a triple-cross! Jack tells Barbossa to ambush the Navy, but while he's distracting him, Jack secretly palms a piece of the cursed Aztec gold for himself.
-
-**PRODUCER GUY:** Why would he do that?
-
-**SCREENWRITER GUY:** So he can be an immortal skeleton too! It leads to a big sword fight where both Jack and Barbossa are immortal and just stabbing each other for fun.
-
-**PRODUCER GUY:** Pointless stabbing is great!
-
-**SCREENWRITER GUY:** So then Will, who has the last piece of gold, cuts his hand to repay the blood debt, breaking the curse on everyone. Jack then shoots the now-mortal Barbossa with a pistol he's been saving for ten years.
-
-**PRODUCER GUY:** Ten years? That's some serious patience.
-
-**SCREENWRITER GUY:** He's a patient pirate! So they all go back to Port Royal, Jack is sentenced to hang, but Will saves him at the last second. Jack does a cool dive into the water, his crew picks him up on the Black Pearl, and the Commodore just lets him go because it was "good business."
-
-**PRODUCER GUY:** It was good business to let a known criminal escape?
-
-**SCREENWRITER GUY:** Apparently! And Will gets the girl. So, what do you think?
-
-**PRODUCER GUY:** An eccentric drunk pirate, skeleton ghosts, a magic medallion... it sounds ridiculous. But that main character seems fun. People might like him.
+**PRODUCER GUY:** Wow. Just wow. Dinosaurs, corporate espionage, and a T-Rex hero. This has everything. I think people are going to absolutely love this. It's a guaranteed hit.
 
 ***
 
-**News Headline:** 'Pirates of the Caribbean' Becomes a Global Phenomenon, Grossing Over $650 Million and Making Captain Jack Sparrow a Household Name.
+**The Hollywood Reporter: "Jurassic Park Roars Past Box Office Expectations, Becomes Highest-Grossing Film of All Time"**
