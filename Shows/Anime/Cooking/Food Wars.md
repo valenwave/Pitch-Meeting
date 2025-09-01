@@ -1,77 +1,97 @@
-**PRODUCER GUY:** So, you got an anime series for me?
+**PRODUCER GUY:** So, you have an anime for me?
 
-**SCREENWRITER GUY:** Yes sir, I do. It’s a cooking anime.
+**SCREENWRITER GUY:** Yes sir, I do! It’s a high-stakes, action-packed show about… cooking.
 
-**PRODUCER GUY:** A cooking anime? Okay. Are people going to be throwing knives at each other and stuff?
+**PRODUCER GUY:** Cooking? Is this for that channel my grandma watches during the day?
 
-**SCREENWRITER GUY:** No sir, not really. This is about an elite culinary high school called Totsuki Academy, where only the best of the best get to graduate.
+**SCREENWRITER GUY:** No, no, this is for teens! It’s set at Totsuki Saryo Culinary Academy, the most elite cooking high school in the entire world. The graduation rate is less than 1 percent.
 
-**PRODUCER GUY:** A high-stakes high school. I like it. So who’s our main character?
+**PRODUCER GUY:** A high school that’s harder to get through than Navy SEAL training? For cooking?
 
-**SCREENWRITER GUY:** Our hero is Soma Yukihira. He’s a super talented chef who grew up working in his dad’s humble diner.
+**SCREENWRITER GUY:** Exactly! And our hero is Soma Yukihira, a plucky kid who learned everything he knows working at his dad's small-town diner. So he shows up at this super-elite school and on the very first day, he declares he's going to be number one.
 
-**PRODUCER GUY:** A classic underdog story! Love it.
+**PRODUCER GUY:** Oh, so all the rich, snobby students are going to hate him for that.
 
-**SCREENWRITER GUY:** Yep. So one day his dad, who is secretly one of the most legendary chefs in the entire world, decides to close the diner and sends Soma to Totsuki to hone his skills.
+**SCREENWRITER GUY:** They absolutely are! Especially Erina Nakiri, the headmaster's granddaughter, who has a supernatural ability called the "God Tongue." She can taste food and know every single ingredient with perfect accuracy.
 
-**PRODUCER GUY:** Oh, his dad is secretly a world-famous chef? That seems pretty convenient.
+**PRODUCER GUY:** She has a magic tongue. Got it.
 
-**SCREENWRITER GUY:** It is! So at this school, all disputes, from getting ingredients to challenging the top students, are settled through cooking battles called “Shokugeki.”
+**SCREENWRITER GUY:** So for the entrance exam, she asks him to make a dish with eggs. So he makes a simple rice and egg dish from his diner.
 
-**PRODUCER GUY:** Food Wars! I get the title now.
+**PRODUCER GUY:** And she hates it because it’s not fancy enough, right?
 
-**SCREENWRITER GUY:** You do! So in these battles, they cook these incredible dishes for a panel of judges.
+**SCREENWRITER GUY:** She secretly loves it but is too proud to admit it, so she fails him!
 
-**PRODUCER GUY:** And I assume the food is very good.
+**PRODUCER GUY:** Oh, but he gets in anyway.
 
-**SCREENWRITER GUY:** Sir, the food is so mind-blowingly delicious that it causes anyone who eats it to have… let’s call them ‘intense culinary epiphanies.’
+**SCREENWRITER GUY:** Yeah, the headmaster overrules her. He’s a fun old guy who sometimes gets naked for no reason.
 
-**PRODUCER GUY:** What does that mean?
+**PRODUCER GUY:** Wow wow wow… wow.
 
-**SCREENWRITER GUY:** It means their clothes explode off their bodies in waves of pure, delicious ecstasy.
+**SCREENWRITER GUY:** So the main thing at this school are "Shokugeki," which are high-stakes cooking battles. Students can wager anything. Their dorms, their cooking tools, even their future at the school.
 
-**PRODUCER GUY:** Wow wow wow… wow. Their clothes just… explode?
+**PRODUCER GUY:** So you can get expelled because your risotto was slightly under-seasoned?
 
-**SCREENWRITER GUY:** It’s a visual metaphor for how good the food is! It’s all happening in their minds. We think.
+**SCREENWRITER GUY:** Yes! And the battles are judged by a panel of experts. And when they eat the food, something incredible happens.
 
-**PRODUCER GUY:** A metaphorical nudity dimension. Got it. So who does Soma have to fight with his food?
+**PRODUCER GUY:** What’s that?
 
-**SCREENWRITER GUY:** His main rival is Erina Nakiri, the granddaughter of the school's dean. She has a divine sense of taste known as the "God Tongue," so she looks down on his common diner food. There are also tons of other chefs who specialize in things like smoked meats, wild game, and Italian food.
+**SCREENWRITER GUY:** Their clothes explode.
 
-**PRODUCER GUY:** So it’s a whole universe of food fighters.
+**PRODUCER GUY:** I’m sorry, what was that now?
 
-**SCREENWRITER GUY:** Exactly! And they all live in this dorm together called the Polaris Dormitory, where they have to constantly prove their skills just to stay residents.
+**SCREENWRITER GUY:** The food is just so mind-blowingly delicious that it creates a metaphorical explosion of flavor that literally blows their clothes off. Sometimes they find themselves wrestling a magical squid in a field of buttercups. It’s a metaphor!
 
-**PRODUCER GUY:** Okay, so how do we keep things exciting? I can’t just watch kids make eggs for five seasons, no matter how many clothes are exploding.
+**PRODUCER GUY:** So people get naked from eating food. Is this show… you know… for adults?
 
-**SCREENWRITER GUY:** Well, there are training camps from hell run by alumni, a giant school festival, and intense tournaments like the Autumn Elections to determine the best first-year students.
+**SCREENWRITER GUY:** It’s about being passionate about your craft, sir! A very wholesome craft!
 
-**PRODUCER GUY:** Autumn Elections? Is he running for student body president?
-
-**SCREENWRITER GUY:** No, it’s a cooking tournament. And eventually, Erina’s evil, food-fascist father, Azami, takes over the school and tries to outlaw all culinary freedom.
-
-**PRODUCER GUY:** An evil dad wants to stop people from being creative with food? What a monster!
-
-**SCREENWRITER GUY:** I know! So Soma has to lead a team of rebel chefs to take back the school in a massive team-based Shokugeki.
-
-**PRODUCER GUY:** So it’s a rebellion fought with risotto.
-
-**SCREENWRITER GUY:** Pretty much. And at one point, Soma has to create a world-class dish to avoid expulsion using only leftover ingredients he finds in the kitchen.
-
-**PRODUCER GUY:** Oh man, that sounds impossible. It’s going to be tough for him to pass that.
+**PRODUCER GUY:** Okay. So this diner kid has to compete against geniuses who specialize in things like molecular gastronomy and aging meat for 40 days. It's going to be tough for him to win.
 
 **SCREENWRITER GUY:** Actually, it’s going to be super easy, barely an inconvenience.
 
 **PRODUCER GUY:** Oh, really?
 
-**SCREENWRITER GUY:** Yeah, he just whips up some fake pork roast using bacon and potatoes and it blows everyone away. He’s very resourceful.
+**SCREENWRITER GUY:** Yeah, see, he’ll be up against a master of Italian cuisine, for example. And Soma will just use his diner-honed skills to make a completely bizarre but delicious dish that no one expects, and the judges’ clothes will fly right off.
 
-**PRODUCER GUY:** So a battle anime with food, a secret legendary dad, and metaphorical nudity. This is one of the most ridiculous things I've ever heard.
+**PRODUCER GUY:** Of course they will.
 
-**SCREENWRITER GUY:** So you don’t like it?
+**SCREENWRITER GUY:** So he’ll make his way through a bunch of challenges. He’ll have a rival with silver hair named Takumi Aldini. He’ll have a shy but talented friend named Megumi Tadokoro. He’ll even have to save his dorm from being demolished by winning a Shokugeki.
 
-**PRODUCER GUY:** I love it! It's completely bonkers. This has everything: action, drama, and educational tidbits about cooking techniques. The fans are gonna eat this up.
+**PRODUCER GUY:** So he just wins all the time?
+
+**SCREENWRITER GUY:** Well, he loses a big one to the top student, the head of the "Elite Ten Council" that runs the school. But that just makes him want to get better!
+
+**PRODUCER GUY:** A council of high schoolers runs the most prestigious culinary institution on the planet. Makes sense.
+
+**SCREENWRITER GUY:** But then things get real! Erina’s evil dad, Azami, shows up. He was exiled from the culinary world, but now he’s back and he takes over the school!
+
+**PRODUCER GUY:** How?
+
+**SCREENWRITER GUY:** He gets the majority of the Elite Ten to vote for him.
+
+**PRODUCER GUY:** The high school cooking council can stage a coup?
+
+**SCREENWRITER GUY:** They sure can! And Azami’s philosophy is that only ultra-gourmet, perfect food should exist. He shuts down all the clubs and forces everyone to cook from his approved recipes. No more creativity!
+
+**PRODUCER GUY:** Oh no! Not the lack of creativity!
+
+**SCREENWRITER GUY:** So Soma and his rebel friends have to challenge Azami’s new Elite Ten to a massive team Shokugeki called a Regiment de Cuisine. If they win, Azami is out and they get all the seats on the council. If they lose, they’re all expelled.
+
+**PRODUCER GUY:** So they have to beat the best student chefs in the country, all of whom have been brainwashed by this evil dad.
+
+**SCREENWRITER GUY:** Exactly! And they’ll have to cook things like bear meat and alligator. And in the final battle, Soma and Erina will team up and make a dish so unbelievably delicious…
+
+**PRODUCER GUY:** Let me guess. It blows the evil dad’s clothes off?
+
+**SCREENWRITER GUY:** It blows his clothes off so hard that his evil food philosophy is destroyed and he becomes a good guy again.
+
+**PRODUCER GUY:** Wow. Food is powerful.
+
+**SCREENWRITER GUY:** The most powerful force in the universe, sir. So what do you think?
+
+**PRODUCER GUY:** High-stakes cooking battles where delicious food makes people’s clothes explode. I don’t understand why, but I have a feeling people are going to eat this up.
 
 ***
 
-### Food Wars! Becomes Global Sensation, Culinary School Applications Skyrocket
+**Variety:** *‘Food Wars!’ Anime Becomes Global Sensation, Culinary School Applications Mysteriously Spike 500%*
