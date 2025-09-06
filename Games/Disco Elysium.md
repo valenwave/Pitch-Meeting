@@ -1,37 +1,79 @@
-**PRODUCER GUY:** So, you've got this new game pitch for me, huh? What's the big idea?
+**PRODUCER GUY:** So, you got a new video game for me?
 
-**SCREENWRITER GUY:** Okay, so it's an RPG. Like, a *real* RPG. But instead of fighting monsters with swords, you're fighting your own brain with... words.
+**SCREENWRITER GUY:** Yes sir, I do! It's a gritty, hardboiled detective story called *$Disco Elysium$*.
 
-**PRODUCER GUY:** Words? Like, you're a poet? Is this a poetry simulator? Because I don't think that's going to move a lot of units.
+**PRODUCER GUY:** Oh, I like the sound of that. A tough-as-nails detective solving a grisly murder on the mean streets.
 
-**SCREENWRITER GUY:** No, no! You're a detective. But you wake up with amnesia after, like, the worst bender ever. You don't even remember your name, or that you're a cop. And your necktie talks to you.
+**SCREENWRITER GUY:** Exactly! So the game opens on our hero, a detective, waking up in a completely destroyed hotel room. He has a world-ending hangover, he's wearing nothing but his underwear, and he has total amnesia.
 
-**PRODUCER GUY:** Your... your necktie talks to you? So is it a talking animal sidekick situation? Because we could merchandise that. Little talking necktie plushies.
+**PRODUCER GUY:** So he's less "tough-as-nails" and more "a walking disaster."
 
-**SCREENWRITER GUY:** Not exactly. See, all your skills – like, your intellect, your empathy, your composure – they're all distinct personalities in your head, and they talk to you, and to each other. They're constantly bickering and giving you advice, sometimes really bad advice.
+**SCREENWRITER GUY:** He's a complex individual, sir. He doesn't know his own name, where he is, or even what a detective does.
 
-**PRODUCER GUY:** So it's like an internal committee meeting, but for your brain? And you're playing as the guy who has to listen to all of them? Sounds... exhausting.
+**PRODUCER GUY:** How is he supposed to solve a murder if his own brain is a crime scene?
 
-**SCREENWRITER GUY:** It's immersive! And you're trying to solve a murder, but it's not just a murder. It's about politics, and class struggle, and existential dread, and the crumbling ruins of a post-revolutionary society!
+**SCREENWRITER GUY:** That's the journey! So he stumbles outside and meets his partner, Kim Kitsuragi, a very patient and competent officer from another precinct who is just trying to do his job.
 
-**PRODUCER GUY:** So it's a detective game, but also a political science lecture, and a therapy session, all at once? Will there be, like, jump scares? Or loot boxes? Because those are proven revenue streams.
+**PRODUCER GUY:** Okay, so the competent guy will probably have to do all the work. What’s the case?
 
-**SCREENWRITER GUY:** There's no traditional combat! Everything is resolved through dialogue and skill checks. You roll dice, and based on your skills, you succeed or fail, and even failing can open up new, interesting paths. You can literally die from embarrassment, or from having a heart attack while trying to grab your tie from a ceiling fan.
+**SCREENWRITER GUY:** A man has been found hanging from a tree behind the hotel. He's been there for a week.
 
-**PRODUCER GUY:** You can *die* from embarrassment? How is that even a game mechanic? What if someone just wants to punch the bad guy? Can they punch the bad guy?
+**PRODUCER GUY:** A week? Yikes. Well, getting the body down must be the first priority. I imagine that's going to be pretty tough for our amnesiac hero.
 
-**SCREENWRITER GUY:** You *can* throw a punch, but it's still resolved with dice rolls and dialogue. And the consequences are usually more internal and narrative than just, like, a health bar going down. You can be a communist detective, or an ultra-liberal detective, or even a fascist detective!
+**SCREENWRITER GUY:** Actually, it's going to be super easy, barely an inconvenience.
 
-**PRODUCER GUY:** So I can roleplay as a fascist? That's... a choice. Is this going to be, like, super niche? Because I like my games to appeal to *everyone*. Like, people who love shooting things, and people who love collecting things, and people who love... necktie plushies.
+**PRODUCER GUY:** Oh, really?
 
-**SCREENWRITER GUY:** It's a deeply philosophical game, Producer Guy. It's about what it means to be a person, what it means to live in a broken world, and how you pick yourself up when you're a complete wreck.
+**SCREENWRITER GUY:** Yeah, all he has to do is examine the body, throw up from the smell, have a heart attack, try to get a kid to help him throw rocks at it, fail completely, and then wait a whole day for his partner to shoot the rope down. See? Problem solved.
 
-**PRODUCER GUY:** Huh. Well, that's certainly... something. So, no explosions? No cinematic gunfights? Just a lot of reading and internal monologues?
+**PRODUCER GUY:** That sounds incredibly inconvenient.
 
-**SCREENWRITER GUY:** And a haunting, atmospheric soundtrack! And a beautiful, painterly art style! And a truly unique world!
+**SCREENWRITER GUY:** So the main feature of the game is that our hero has 24 different skills, and they all have their own personalities that talk to him inside his head.
 
-**PRODUCER GUY:** Look, Screenwriter Guy, I'm gonna be honest with you. This sounds like it's going to appeal to, like, three people. But those three people are probably going to *really* like it. So, sure, let's make it. What's the worst that could happen?
+**PRODUCER GUY:** They talk to him? Like, he's hearing voices?
+
+**SCREENWRITER GUY:** Constantly! His "Logic" skill will try to piece clues together, while his "Electrochemistry" skill will be screaming at him to find alcohol and drugs. And then you have a skill like "Inland Empire" that will tell him his necktie is talking to him.
+
+**PRODUCER GUY:** His necktie is talking to him.
+
+**SCREENWRITER GUY:** It's a very helpful necktie, sir! So the gameplay is all about navigating these internal conversations and making choices in dialogue. There's no combat.
+
+**PRODUCER GUY:** What? A detective game with no gunfights?
+
+**SCREENWRITER GUY:** Correct! In fact, violence is usually a bad idea. He can try to punch a ten-year-old kid and have a fatal heart attack from the effort.
+
+**PRODUCER GUY:** Our hero dies from trying to fight a child. Got it.
+
+**SCREENWRITER GUY:** It's a cautionary tale! So he solves the case by talking to corrupt union leaders, angry dockworkers, and a couple of cryptozoologists who are looking for a mythical stick insect.
+
+**PRODUCER GUY:** Is the stick insect the murderer?
+
+**SCREENWRITER GUY:** Of course not, but it's very important to the story for reasons.
+
+**PRODUCER GUY:** Is one of the reasons to make me very confused?
+
+**SCREENWRITER GUY:** That's a big one, yes. So eventually, after a lot of political arguments and existential crises, he figures out the killer is an old communist deserter hiding on a tiny island fortress.
+
+**PRODUCER GUY:** Okay, so a big final confrontation with the killer! A shoot-out, a chase scene?
+
+**SCREENWRITER GUY:** No, he just kind of talks to him for a while. And then a giant, seven-foot-long cryptid known as the Insulindian Phasmid shows up.
+
+**PRODUCER GUY:** Wow wow wow... wow. A what now?
+
+**SCREENWRITER GUY:** A phasmid! A giant stick bug! The cryptozoologists were right all along! It communicates with our hero telepathically about the nature of existence.
+
+**PRODUCER GUY:** So the climax of this gritty detective story is a philosophical discussion with a magical insect.
+
+**SCREENWRITER GUY:** It's very profound! Then he arrests the old man, and the game ends with his old police unit showing up to give him a performance review.
+
+**PRODUCER GUY:** He gets a performance review?
+
+**SCREENWRITER GUY:** Yep. They just list all the insane things he did during the game, like losing his gun, having a mental breakdown, and punching a mailbox, but they decide not to fire him because, hey, case closed! So, what do you think?
+
+**PRODUCER GUY:** An RPG with no combat about a sad, alcoholic amnesiac who argues with his own brain and talks to giant bugs sounds like a commercial nightmare. It’s so niche and weird, there's no way it finds a mainstream audience. But I have a feeling the people who play it are going to say it's one of the best games ever made.
+
+**SCREENWRITER GUY:** My thoughts exactly, sir!
 
 ***
 
-**NEWS HEADLINE: DISCO ELYSIUM SWEEPS GAME AWARDS, CRITICS CALL IT A "MASTERPIECE" AND "A NEW BENCHMARK FOR RPGs"**
+**PC Gamer:** Disco Elysium sweeps the BAFTA Game Awards, winning Best Game, Best Debut, and Best Narrative.

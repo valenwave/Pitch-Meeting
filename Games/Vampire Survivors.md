@@ -1,47 +1,73 @@
-**PRODUCER GUY:** So, what's the pitch?
+**PRODUCER GUY:** So, you got a video game for me?
 
-**SCREENWRITER GUY:** Okay, so it's a game. You're in a big, open field. And there are, like, a zillion monsters.
+**SCREENWRITER GUY:** Yes sir, I do. It’s a gothic horror action game called *Vampire Survivors*.
 
-**PRODUCER GUY:** A zillion? Like, more than one zillion?
+**PRODUCER GUY:** *Vampire Survivors*! I love it. Sounds intense. So you’re a scrappy hero, hiding from vampires, trying to make it through the night.
 
-**SCREENWRITER GUY:** Maybe! It's a lot. And they're all coming at you.
+**SCREENWRITER GUY:** Exactly! Except you don’t really hide. You mostly just walk around a giant, empty field.
 
-**PRODUCER GUY:** Right. So it's a typical action game. You shoot them, you dodge.
+**PRODUCER GUY:** Oh. And you fight vampires?
 
-**SCREENWRITER GUY:** No, no, no. You don't shoot. Your weapons just… attack automatically.
+**SCREENWRITER GUY:** Well, no. The story is that an evil man named Bisconte Draculó has unleashed hordes of monsters. But despite the name, none of them are actually vampires.
 
-**PRODUCER GUY:** Wait. So I just… walk around? And things die?
+**PRODUCER GUY:** Bisconte Draculó? It sounds like Dracula’s name after a game of telephone.
 
-**SCREENWRITER GUY:** Pretty much! You just focus on moving and picking up experience gems.
+**SCREENWRITER GUY:** So you pick a hero, like Antonio Belpaese, who starts with a whip, and you go out to fight these monsters!
 
-**PRODUCER GUY:** Experience gems? Like, from the monsters I'm not even aiming at?
+**PRODUCER GUY:** What kind of monsters?
 
-**SCREENWRITER GUY:** Exactly! And when you level up, you get to choose a new weapon or a passive upgrade. Like a garlic aura that hurts enemies around you, or a whip that just… whips.
+**SCREENWRITER GUY:** Bats, skeletons, giant praying mantises, mud men, lizard pawns, milk elementals...
 
-**PRODUCER GUY:** So, the game plays itself? Is that the pitch? "The game plays itself, you just watch numbers go up?"
+**PRODUCER GUY:** So it’s a game called *Vampire Survivors* where you don't fight any vampires. Nailed it.
 
-**SCREENWRITER GUY:** Well, no, you're constantly moving, dodging, trying to position yourself so your automatic attacks hit the most enemies. And you've gotta manage your passive items and their evolutions. Like, if you get the "King Bible" and combine it with "Spellbinder," it becomes this unstoppable vortex of holy texts!
+**SCREENWRITER GUY:** So you’re in this field, and endless waves of monsters just start walking towards you.
 
-**PRODUCER GUY:** Holy texts? So it's a religious game? I thought it was vampires.
+**PRODUCER GUY:** Okay, so I’m guessing there’s a button for a light attack, a heavy attack, maybe a cool dodge move?
 
-**SCREENWRITER GUY:** It's gothic horror! With Italian memes! The characters have names like Antonio and Imelda, and there's a weapon called "La Borra" which is a reference to some obscure Italian quiz show incident.
+**SCREENWRITER GUY:** Oh, you don't press any buttons to attack. The character does it automatically.
 
-**PRODUCER GUY:** Italian memes. So, the gameplay is passive, the characters are obscure references, and the monsters are "a zillion." What's the objective here? To survive?
+**PRODUCER GUY:** What? So the game just… plays itself?
 
-**SCREENWRITER GUY:** Yeah, for 30 minutes. Then the Reaper comes for you. And if you kill him, *another* Reaper comes. And then another.
+**SCREENWRITER GUY:** No, no, you have to do the most important part: walking. You walk around to dodge the monsters and to pick up the little experience gems they drop when they die.
 
-**PRODUCER GUY:** So you can't win? The game just inevitably kills you?
+**PRODUCER GUY:** So it’s a strategic walking game.
 
-**SCREENWRITER GUY:** Eventually! But you get gold, and you unlock new characters, new weapons, new stages. And some of those characters have, like, negative health stats. Or they're literally skeletons.
+**SCREENWRITER GUY:** It’s very strategic! When you level up, you get to choose a new weapon or a passive item. You can get knives that shoot out, axes that fly in an arc, holy water that creates damaging zones, or even a bible that just spins around your body.
 
-**PRODUCER GUY:** So the game is punishing, passive, confusing, and full of inside jokes. And you're telling me this is good?
+**PRODUCER GUY:** A spinning bible that smites your enemies! Weaponized faith is tight!
 
-**SCREENWRITER GUY:** It's incredibly addictive! You just want to do "one more run" to see what crazy weapon evolution you can get, or how long you can last against the endless hordes. It’s got that “just five more minutes” feeling.
+**SCREENWRITER GUY:** It is! And as you get more weapons and level them up, you become this unstoppable vortex of destruction! The whole screen is just a firework show of projectiles and death!
 
-**PRODUCER GUY:** Hmm. A low-effort, high-addiction loop with bizarre meta-humor. You know what? I think this might just work.
+**PRODUCER GUY:** Wow! So then you finally get to the end and kill Bisconte Draculó in an epic boss battle?
 
----
+**SCREENWRITER GUY:** No, there’s no final boss. The goal is to survive for 30 minutes.
 
-**NEWS HEADLINE:**
+**PRODUCER GUY:** Okay, and what happens after 30 minutes?
 
-VAMPIRE SURVIVORS: THE INDIE HIT THAT PROVED SIMPLE IS OFTEN BETTER, SELLS MILLIONS AND BECOMES A CULT PHENOMENON.
+**SCREENWRITER GUY:** A big, spooky Reaper shows up.
+
+**PRODUCER GUY:** And you have to fight the Reaper to win?!
+
+**SCREENWRITER GUY:** No, the Reaper is basically invincible and kills you in one hit. The run is over.
+
+**PRODUCER GUY:** So the reward for successfully surviving for 30 minutes is to be immediately and unceremoniously murdered.
+
+**SCREENWRITER GUY:** Yes! It’s all about the journey! And you collect gold during your run to buy permanent power-ups so you can do it all again, but better!
+
+**PRODUCER GUY:** Man, getting swarmed by thousands of monsters only to be killed by an unkillable enemy seems like it would be super frustrating for players.
+
+**SCREENWRITER GUY:** Actually, it’s going to be super easy, barely an inconvenience.
+
+**PRODUCER GUY:** Oh, really?
+
+**SCREENWRITER GUY:** Yeah, because the gameplay loop of getting more and more powerful is so satisfying that players will become hopelessly addicted. They won’t even care that they always lose in the end!
+
+**PRODUCER GUY:** So a game with super simple, retro graphics, where you only move your character and don't attack, there are no vampires, and the only ending is to die… I don't know, man. It sounds almost too simple to work.
+
+**SCREENWRITER GUY:** But it’s going to be super cheap! Like, less than a cup of coffee!
+
+**PRODUCER GUY:** Oh! Well, for that price, I guess it can’t hurt. It'll probably be one of those weird little indie games that a few hundred people play and then forget about.
+
+***
+
+*The Verge: How Vampire Survivors became 2022’s best game for surviving 2022*
