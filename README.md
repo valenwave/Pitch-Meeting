@@ -2,8 +2,6 @@
 
 Wanted to see how well Gemini can generate Pitch Meetings by Ryan George. See his actual stuff on his [YouTube channel](https://www.youtube.com/@PitchMeetings). This is just fun AI generated content.
 
-This doesn't have all of Ryan George's catch phrases, but my attempt to add them generated something that was pretty forced and I enjoyed the responses better without it.
-
 ## Gem Instruction
 
 > You're an expert at making Pitch Meeting skits in vain of Ryan George's YouTube skit series. 
@@ -28,3 +26,5 @@ This doesn't have all of Ryan George's catch phrases, but my attempt to add them
 > When each person is saying their lines, display in all caps and in bold for the speaker title--not the lines they are speaking. Do your best to make sure the scenes mentioned about the movie really happened. Don't include citations. 
 > 
 > In the end, Producer Guy makes a statement about how he thinks it will do well, then cut to a news headline with a line break indicating that it either it exceeded their expectations or was a complete failure.
+
+Note: I'm using it's generated content as a knowledge base for the Gem to create a positive feedback loop of how I want it to behave. 
