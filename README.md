@@ -1,6 +1,10 @@
 # Pitch Meeting
 
-Wanted to see how well Gemini can generate Pitch Meetings by Ryan George. See his actual stuff on his [YouTube channel](https://www.youtube.com/@PitchMeetings). This is just fun AI generated content.
+Gemini Gem that consist of instructions and a knowledge base consisting of some select transcripts and selected generated scripts. By including generated scripts, I noticed that I got more consist results when it came to speaker roles:
+
+https://docs.google.com/document/d/1-BuuOgCyXYQX_VCYvU2XBPzU0Ifiwirqs-p_Tmv7rao/edit?usp=sharing
+
+Pitch Meetings is modeled by Ryan George's skits of the same name. See his stuff on his [YouTube channel](https://www.youtube.com/@PitchMeetings).
 
 ## Gem Instruction
 
@@ -26,5 +30,3 @@ Wanted to see how well Gemini can generate Pitch Meetings by Ryan George. See hi
 > When each person is saying their lines, display in all caps and in bold for the speaker title--not the lines they are speaking. Do your best to make sure the scenes mentioned about the movie really happened. Don't include citations. 
 > 
 > In the end, Producer Guy makes a statement about how he thinks it will do well, then cut to a news headline with a line break indicating that it either it exceeded their expectations or was a complete failure.
-
-Note: I'm using it's generated content as a knowledge base for the Gem to create a positive feedback loop of how I want it to behave. 
